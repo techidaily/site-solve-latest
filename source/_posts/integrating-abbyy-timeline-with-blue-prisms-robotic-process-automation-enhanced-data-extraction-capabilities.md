@@ -1,7 +1,7 @@
 ---
 title: "Integrating ABBYY Timeline with Blue Prism's Robotic Process Automation: Enhanced Data Extraction Capabilities"
-date: 2024-08-19 13:34:40
-updated: 2024-08-22 10:27:45
+date: 2024-08-21T15:24:23.882Z
+updated: 2024-08-22T15:24:23.882Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2ed779a90446e954f94e74e484145fa08b9476978f937cb6e50b9af175371190.jpg
@@ -47,22 +47,34 @@ Any organization navigating digital transformation will find this new offering e
 
 [Learn more about](https://www.blueprism.com/products/blue-prism-process-intelligence/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-product-2021-q4-10-1-blue-prism-process-intelligence) Blue Prism Process Intelligence Powered by ABBYY Timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### About Blue Prism
 
 Blue Prism is a global leader in enterprise robotic process automation (RPA) and intelligent automation, transforming the way work is done. We have over 2,000 customers in over 170 countries and 70 industry verticals, 30% in the Forbes Global 2,000, creating value with new ways of working by unlocking efficiencies and returning millions of hours of work back into their businesses. Our enterprise digital robots offer high-scale automation that is secure, smart, accessible to all, enabling centrally managed human and digital workforces of the future and freeing up humans to re-imagine work. To learn more visit [www.blueprism.com](https://www.blueprism.com/?utm%5Fsource=prnewswire&utm%5Fmedium=press-release&utm%5Fcampaign=gl-brand-2021-fy-5-13-boilerplate)and follow us on Twitter [@blue\_prism](https://twitter.com/blue%5Fprism) and on [LinkedIn](https://www.linkedin.com/company/blue-prism-limited).
 
 © 2021 Blue Prism Limited. “Blue Prism”, the “Blue Prism” logo and Prism device are either trademarks or registered trademarks of Blue Prism Limited and its affiliates. All Rights Reserved. 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY empowers organizations to gain a complete understanding of their business processes and the content that fuels them with its Digital Intelligence platform. ABBYY technologies are used by more than 5,000 companies, including many of the Fortune 500, and are recognized for their leadership in Intelligent Document Processing (IDP) and Process Discovery & Mining for driving significant impact where it matters most: customer experience, effectiveness, profitability, and competitive advantage. ABBYY is a global company with offices in 14 countries. For more information, visit [www.abbyy.com](https://tools.techidaily.com/abbyy/products/) and follow us on LinkedIn, Twitter, and Facebook.
 
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies, and may not be used without consent of its respective owners.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Media contacts:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 #### Paul Taylor 
 
 **Blue Prism**
@@ -71,6 +83,9 @@ ABBYY can either be a registered trademark or a trademark and can also be a logo
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Gina Ray, APR
 
 **ABBYY**

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform
-date: 2024-08-20 23:43:33
-updated: 2024-08-22 10:13:38
+date: 2024-08-21T15:24:21.708Z
+updated: 2024-08-22T15:24:21.708Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd894777e476ebe9274260c57e1be.jpg
@@ -83,3 +83,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

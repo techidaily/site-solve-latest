@@ -1,7 +1,7 @@
 ---
 title: Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit
-date: 2024-08-20 12:16:26
-updated: 2024-08-22 12:54:50
+date: 2024-08-21T15:24:22.488Z
+updated: 2024-08-22T15:24:22.488Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e295c9ac73c2cf7b4e3fab8b993b16c3823b6dce1be16a4461eea67969cf81e.jpg
@@ -53,3 +53,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->

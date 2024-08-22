@@ -1,7 +1,7 @@
 ---
 title: Boost Your Website Traffic with Automated Conversion Tracking - The Power of Cookiebot
-date: 2024-08-21 14:13:17
-updated: 2024-08-22 10:57:48
+date: 2024-08-21T15:24:21.730Z
+updated: 2024-08-22T15:24:21.730Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6ab330fc24fdad62a19d7e96.jpeg
@@ -35,6 +35,9 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 
 ここからは特に、RPA, DXで利用されている帳票OCRについて、ソリューション選択時の評価ポイントについて触れたいと思います。
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 帳票処理ソリューションの評価ポイント
 
 帳票処理ソリューションを選択する際、評価ポイントとして何に注目されてますでしょうか？多くの方がOCRの認識精度をまず第一に挙げられるのではないでしょうか。実は、これはとても危険です。弊社でも、これまで認識精度に着目してOCR帳票処理ソリューションを選定した結果、思うように導入効果が出ず何とかしてほしい、といった相談を頂戴することが多数ありました。なぜこのようなことが起こるのでしょうか。以下では、主な原因について説明いたします。
@@ -47,6 +50,9 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 
 ![AI OCR](https://static1.abbyy.com/abbyycommedia/29415/solcial-media-image.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### ROI（費用対効果）について
 
 上記プロセスを想定するとご理解いただけるかと思いますが、実は文字毎のOCR認識精度が数％違っても全体のROIへの影響はほとんどありません。それよりも、仕分け・項目抽出等トータルでの精度、確認・修正のしやすさ、他システム連携のしやすさ、処理スピード性能等、プロセス全体で効率化が図られるかを評価する必要があります。
@@ -61,6 +67,10 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 * 他システム連携性（必要な場合）
 * 開発・メンテナンスコスト
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 ### ABBYY FlexiCaptureの強み
 
 帳票処理ソリューション選択時の評価ポイントをふまえ、FlexiCaptureの評価が特に高いポイントについてご紹介いたします。
@@ -77,6 +87,9 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 
 ![AI OCR](https://static1.abbyy.com/abbyycommedia/29416/forms-image-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ##### 簡単かつ高精度な仕分け機能
 
 先程お話しした通り、自動仕分けの精度はプロセス全体に大きな影響を与えます。
@@ -107,12 +120,18 @@ FlexiCaptureの大きな特徴として、様々なシステム・アプリケ�
 
 [例7: 外部手書きエンジンとの連携](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### まとめ
 
 本コラムでは、帳票処理ソリューション選択、導入時の評価ポイントについて紹介しました。これらのポイントを踏まえ、適切なソリューションを選定することが非常に重要となります。また評価にあたり、[ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) が選択肢となるような場合は、是非弊社までご連絡頂ければ幸いです。
 
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 

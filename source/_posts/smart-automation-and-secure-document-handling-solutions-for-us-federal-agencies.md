@@ -1,7 +1,7 @@
 ---
 title: Smart Automation & Secure Document Handling Solutions for U.S. Federal Agencies
-date: 2024-08-21 20:52:22
-updated: 2024-08-22 10:29:49
+date: 2024-08-21T15:24:22.284Z
+updated: 2024-08-22T15:24:22.284Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -127,14 +127,23 @@ But what's also cool with this technology, John, is we're able to use all that a
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static2.abbyy.com/abbyycommedia/36193/abbyy-poi-blog.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 [What Is Identity Proofing and Why It’s Only Part of the Solution](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static1.abbyy.com/abbyycommedia/36260/poi_id-verification-not-enough-to-prevent-fraud-heres-why_v2.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
+<!-- affiliate ads end -->
 [Identity Verification is Not Enough to Prevent Fraud—Here's Why](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates

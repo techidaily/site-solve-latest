@@ -1,7 +1,7 @@
 ---
 title: "Advancing Personalization: Solutions Powered by Cookiebot"
-date: 2024-08-21 14:26:56
-updated: 2024-08-22 12:55:20
+date: 2024-08-21T15:24:23.666Z
+updated: 2024-08-22T15:24:23.666Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/40c676885a2dc616461b86984d2bb33aa0260b3072dcf3b79b657b93df0cfe34.jpg
@@ -40,18 +40,27 @@ Invoice processing has long been a priority for ABBYY customers and represents a
 
 [ABBYY customer JLL](https://tools.techidaily.com/abbyy/products/)—a commercial real estate giant—used ABBYY’s cloud-based IDP solution to save millions of dollars by automating invoicing and payment processes. This global Source-to-Pay (S2P) automation initiative exceeded the Fortune 500 company’s business goals and led to the CIO 100 award, acknowledging ABBYY and JLL’s success in setting a new standard in Source-to-Pay.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Europe
 
 In Europe, document processing priorities for ABBYY customers focus highly on transportation-and-logistics-related documents, with 41 percent requesting document processing skills for **air waybills** and 27 percent requesting skills for **customs declarations documents and international consignment notes**. We attribute this trend to the high prevalence of commerce between the European Union (EU) and non-EU member countries, particularly following Brexit.
 
 [ABBYY customer Carlsberg Group](https://tools.techidaily.com/abbyy/products/), a global leader in brewing, uses ABBYY IDP to automatically capture incoming orders and transfer them immediately into their SAP system. This saves up to eight minutes of manual work per order, depending on the region. In Sweden, this saves over 140 hours per month and yields a touchless order processing rate of 92 percent. Carlsberg also relies on IDP for delivery note scanning in warehouses, accelerating the registration of delivered goods, and providing a more holistic overview of the entire delivery process.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Asia-Pacific
 
 In Asia-Pacific, the need for international shipping document process skills also resonated, with 35 percent requesting IDP for **air waybills and sea waybills**. Identity documents and financial documents (**bank statements, invoices**) are high in demand as well. These trends reflect the high volume of exports and international commerce originating from the APAC region, as exports begin to rise following the decline from the COVID pandemic.
 
 The [Tokyo district of Nakano-Ku](https://tools.techidaily.com/abbyy/products/), an ABBYY customer, reduced their work volume by 30 percent and cut outsourcing costs by 25 percent by using IDP to digitally transform its resident tax collection process. Their solution automated the extraction of over 100 different handwritten and printed paper forms of various sizes and shapes, which had previously been done manually. Even with the differing tax rates, structures, and data formats of districts across Japanese local governments, IDP offers a repeatable and scalable solution to be used nationwide.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Download the full report for detailed insights
 
 In addition to revealing the top five most requested document types for IDP in each region, the [ABBYY Global Intelligent Document Processing Trends & Outcomes Report](https://tools.techidaily.com/abbyy/products/) also shares data about providers of partner IDP solutions, as well as connectors that our customers are using to integrate IDP into third-party automation platforms from Microsoft, UiPath, and others. Based on what we have observed with our customer base, we identify current trends that are driving IDP adoption in the market today and recommendations for implementation.
@@ -60,6 +69,9 @@ The full report can be accessed [here](https://tools.techidaily.com/abbyy/produc
 
 ![Slavenahristova 99X99](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Slavena Hristova
 
 Director of Product Marketing, Vantage group at ABBYY
@@ -68,12 +80,18 @@ Slavena Hristova is Director of Product Marketing, Vantage at ABBYY. Hristova le
 
 Connect with Slavena on [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/).
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Additional Insights:
 
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![Is Generative AI Trustworthy?](https://static2.abbyy.com/abbyycommedia/37531/ai-and-the-big-question_848x444.jpg) **Is Generative AI Trustworthy?** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Subscribe for updates
 
 Get updated on the latest insights and perspectives for business & technology leaders

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Mobile OCR Scanner: Enhanced Productivity on iPhone and iPad"
-date: 2024-08-21 10:16:26
-updated: 2024-08-22 11:24:39
+date: 2024-08-21T15:24:23.996Z
+updated: 2024-08-22T15:24:23.996Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/43b3016567177cad6fe84b916b9b05812f511a2dc184d4caf7d23cf42a2ae057.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

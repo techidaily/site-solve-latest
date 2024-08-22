@@ -1,7 +1,7 @@
 ---
 title: "1. Leveraging ABBYY X Arsenal Ladies: Revolutionary Artificial Intelligence Analysis"
-date: 2024-08-20 11:39:33
-updated: 2024-08-22 11:16:13
+date: 2024-08-21T15:24:23.250Z
+updated: 2024-08-22T15:24:23.250Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d20682484ee39b27689e93ff94b9b7638592055fcb925a693073d87e930189fb.jpg
@@ -125,3 +125,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
+<!-- affiliate ads end -->

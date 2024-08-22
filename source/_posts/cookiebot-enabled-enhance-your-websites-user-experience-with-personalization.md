@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Website's User Experience with Personalization"
-date: 2024-08-19 17:41:30
-updated: 2024-08-22 11:23:54
+date: 2024-08-21T15:24:22.762Z
+updated: 2024-08-22T15:24:22.762Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00df3f1d4defd5e8c6891f82cb.jpg
@@ -80,24 +80,36 @@ Many vendors offer smart watches based on Wear OS from Google. There are models 
 
 ![gear os samsung](https://static1.abbyy.com/abbyycommedia/26560/2a03b2351fb67deaa468af56ed130400.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **New** **notifications**
 
 To open notifications, simply swipe upwards on the main screen. The new Smart Replies feature will analyze the text of your incoming messages and suggest fitting replies, which can be sent with just one tap.
 
 ![samsung smart watch](https://static1.abbyy.com/abbyycommedia/26561/notifications-mk.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Quick Settings**
 
 Swiping down will open the updated Quick Settings menu, where you can manage your wireless connections, enable the “Do not disturb” and battery saving modes, or activate the Google Pay and Find My Phone features.
 
 ![gear os](https://static1.abbyy.com/abbyycommedia/26562/fly-through.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 **Keeping Yourself in Shape with Google**
 
 The Google Fit activity tracker has an additional screen with smart tips and circular charts showing your activity time and cardio points.
 
 ![sport activities on gear os](https://static1.abbyy.com/abbyycommedia/26563/fit-tile-workout.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924299/11305" target="_top" id="924299"><img src="//a.impactradius-go.com/display-ad/11305-924299" border="0" alt="" width="520" height="100"/></a>
+<!-- affiliate ads end -->
 **Improved Google Assistant** 
 
 The voice assistant has become smarter and more functional. Now you need to swipe left to right to call up the assistant. In additional to the functionality available in the previous versions, you can now check your flight status, hotel reservations, and the weather at your destination. The assistant can also display the restaurants in the vicinity of your hotel and will even keep a diary for you!
@@ -130,6 +142,9 @@ The app will suggest a reading list based on your past choices. You can create y
 
 ![Blinkist app](https://static1.abbyy.com/abbyycommedia/31973/pic-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Available on [iOS](https://itunes.apple.com/us/app/blinkist-always-learning/id568839295) and [Android](https://play.google.com/store/apps/details?id=com.blinkslabs.blinkist.android&hl=en).
 
 ## First-Hand Experience: Advice From a Colleague
@@ -138,6 +153,9 @@ _By Ksenia Zhilkina, Junior Project Manager_
 
 ![Ksenia Zhilkina, ABBYY](https://static1.abbyy.com/abbyycommedia/31974/ksenia-zhilkina-abbyy.png)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Some tips to make Mondays great**
 
 Many of us do not feel our very best waking up after an action-packed weekend. So is there a way to make our Mondays more enjoyable?
@@ -206,6 +224,9 @@ Connect with us
 
 ![](https://static4.abbyy.com/abbyycommedia/26554/mobile-monday-55-watch-os.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
+<!-- affiliate ads end -->
 Smart watches [are becoming increasing popular](https://www.forbes.com/sites/paullamkin/2017/11/29/smartwatch-sales-to-double-in-next-5-years/#64c7711835ed). With each new update, they become even smarter and more versatile. In this issue, we will talk about the key new features and tell the news about 60 FPS support in the latest BCR.
 
 ## **WatchOS Tips: What’s New in Watch OS 5**
@@ -235,6 +256,9 @@ The previous version of watchOS [was all about fitness](https://www.apple.com/au
 
 ![fun on apple watch](https://static1.abbyy.com/abbyycommedia/26557/3-1-947x1024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Podcasts**
 
 Now you can listen to podcasts on your smart watch! This is a very welcome and long-awaited addition as you no longer need your phone to listen to podcasts. Simply connect your cordless earphones or speaker to your watch and enjoy your favourite shows. You don’t even need to keep your iPhone close at hand. Instead, you can download or stream episodes directly onto your watch. Once you’ve listened to a downloaded episode, it will be deleted from your watch memory.
@@ -243,6 +267,9 @@ Your listening progress will automatically sync across all of your devices, so t
 
 ![podcasts on apple watch](https://static1.abbyy.com/abbyycommedia/26558/4-1-948x1024.png)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **Siri and Shortcuts**
 
 Apple’s voice assistant closely monitors all our actions and tries to predict what we’ll want to do next. For example, it can start playing a particular track when you’re in the gym, or it may send a pre-defined message to your near and dear when you head home after work.
@@ -263,6 +290,9 @@ You watch will detect your movement, e.g. when start jogging, and will automatic
 
 Your Apple Watch will now download updates over night, while it is recharging.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## **Wear OS Tips: What’s New in Wear OS 2.1**
 
 Many vendors offer smart watches based on Wear OS from Google. There are models to suit every taste, ranging from minimalist and stylish timepieces to ornate and feature-heavy chronographs. A short while ago, Google released a major Wear OS update. Read our brief review below and decide for yourself if you need this update. If you don’t yet own a Wear OS-powered watch, we hope this rundown will help you decide if you want one or not.
@@ -281,20 +311,33 @@ Swiping down will open the updated Quick Settings menu, where you can manage you
 
 ![gear os](https://static1.abbyy.com/abbyycommedia/26562/fly-through.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 **Keeping Yourself in Shape with Google**
 
 The Google Fit activity tracker has an additional screen with smart tips and circular charts showing your activity time and cardio points.
 
 ![sport activities on gear os](https://static1.abbyy.com/abbyycommedia/26563/fit-tile-workout.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 **Improved Google Assistant** 
 
 The voice assistant has become smarter and more functional. Now you need to swipe left to right to call up the assistant. In additional to the functionality available in the previous versions, you can now check your flight status, hotel reservations, and the weather at your destination. The assistant can also display the restaurants in the vicinity of your hotel and will even keep a diary for you!
 
 ![google assistant](https://static1.abbyy.com/abbyycommedia/26564/jovi-tic.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1567905/13846" target="_top" id="1567905"><img src="//a.impactradius-go.com/display-ad/13846-1567905" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1567905/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In our opinion, the new update has definitely been worth the wait. The OS has become much easier to use, not least because of the new gestures it supports.
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 ## **ABBYY Tip: 60 FPS in Business Card Reader for iOS**
 
 We are pleased to inform you that [Business Card Reader](http://qrs.ly/ip56xfe) now uses the full potential of your iPhone camera. The app now supports videos shot at 60 frames per second!
@@ -321,6 +364,9 @@ The app will suggest a reading list based on your past choices. You can create y
 
 Available on [iOS](https://itunes.apple.com/us/app/blinkist-always-learning/id568839295) and [Android](https://play.google.com/store/apps/details?id=com.blinkslabs.blinkist.android&hl=en).
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1678785/12108" target="_top" id="1678785"><img src="//a.impactradius-go.com/display-ad/12108-1678785" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Ksenia Zhilkina, Junior Project Manager_
@@ -343,6 +389,9 @@ P.S. You can find the previous issue of this newsletter [here](https://tools.tec
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share

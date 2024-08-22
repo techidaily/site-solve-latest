@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics and Conversions"
-date: 2024-08-19 14:39:46
-updated: 2024-08-22 10:44:24
+date: 2024-08-21T15:24:23.729Z
+updated: 2024-08-22T15:24:23.729Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4c1fc861d688eb17793358701272fcb990bfc951646524d04a51586ab07132c7.jpg
@@ -33,12 +33,18 @@ Les répercussions d’un onboarding déficient sur les activités des entrepris
 
 ![infographic-onboarding-survey-fr](https://static1.abbyy.com/abbyycommedia/36369/infographic-onboarding-survey-fr.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 23% des décideurs informatiques envisagent d’implémenter des technologies de Process Intelligence pour optimiser leur onboarding
 
 Pour optimiser leurs processus d'onboarding, les entreprises doivent s’appuyer sur des technologies qui permettent d'automatiser au maximum leurs opérations afin de les rendre plus efficaces. Elles doivent également pouvoir proposer un accompagnement humain dans la mise en place de ce processus. En combinant ces deux facteurs (technologie et humains), les entreprises offrent à leurs clients une expérience d’utilisation améliorée et gagnent ainsi en résilience. L’étude rapporte qu'aujourd'hui 85% des entreprises ont une stratégie d'onboarding alliant de l’humain et de la technologie. Seules 9% s’appuient à 100% sur le digital, et 4% sur l’humain.
 
 Dans le contexte inflationniste actuel, les organisations mesurent l’importance de l’onboarding. Pour limiter les effets négatifs qui pourraient l’affecter, celles-ci s'appuient sur des technologies de pointe. Les décideurs informatiques français sont 24% à avoir digitalisé la vérification d’identité, 24% utilisent des solutions d’Intelligent Document Processing et 20% des outils de RPA. À l'avenir, ils envisagent d’implémenter encore davantage ces solutions, notamment le Process Intelligence (23%) et la vérification d’identité (19%).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 40% des entreprises pensent qu’avec un taux d'abandon réduit de 50% elles pourraient augmenter leurs revenus d’au moins 30%
 
 L’étude a permis de montrer que les organisations attendent qu’un meilleur onboarding améliore l’expérience utilisateur (31%), réduise le taux d'abandon (30%), attire de nouveaux clients (27%) et les fidélise (24%). Mais les entreprises ne pensent pas seulement aux bénéfices induits pour leurs clients mais également aux avantages pour leurs collaborateurs. Ainsi, l’amélioration du processus d’onboarding contribue à améliorer l’ensemble des interactions entre les collaborateurs et les clients (25%), et permet de réduire le travail pour les employés (24%).
@@ -53,20 +59,37 @@ _Hervé Laurandin, Directeur France chez ABBYY._
 
 Le nouveau rapport ABBYY State of Intelligent Automation vous donne un aperçu supplémentaire des moteurs et des contraintes de l'onboarding et vous montre comment vous pouvez mieux répondre aux attentes de vos clients. [Téléchargez le rapport détaillé ici](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Methodology
 
 Méthodologie : Cette étude a été menée par Sapio Research en octobre 2022 pour ABBYY auprès de 1 623 décideurs informatiques dans les secteurs des services financiers, de l'assurance, de la supply chain, du transport et de la logistique, des services publics et de la santé au Royaume-Uni, aux États-Unis, en France, en Allemagne et au Japon.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### À propos d’ABBYY
 
 ABBYY est un acteur référent de l’Intelligent Process Automation. L’entreprise ambitionne de réinventer la manière dont ses clients et leurs équipes se développent en leur apportant la connaissance nécessaire au bon fonctionnement des plateformes d’automatisation. Les solutions d’ABBYY transforment les données d’entreprise dans le but de permettre un gain en agilité et en rapidité. ABBYY aide plus de 10 000 clients dans le monde, dont bon nombre des entreprises du Fortune 500, à obtenir un impact positif dans des domaines majeurs tels que l’expérience client, la rentabilité et la compétitivité.
 
 ABBYY est une multinationale basée aux États-Unis, et dont les bureaux sont répartis au sein de 15 pays. Pour plus d’informations, veuillez consulter le site[https://www.abbyy.com/fr/](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Contact presse
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Eva-Maria Hufschmitt
 
 _ABBYY_

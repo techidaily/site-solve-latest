@@ -1,7 +1,7 @@
 ---
 title: "Transition to Eco-Friendly Solutions: PwC Professionals Utilize ABBYY Mobile Software for Document Management"
-date: 2024-08-19 13:59:14
-updated: 2024-08-22 12:46:46
+date: 2024-08-21T15:24:23.234Z
+updated: 2024-08-22T15:24:23.234Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/76e26b163e9495753f19f00ef08b09cc2666b4e5eaf0daac99a2adb1ba5e0f35.jpg
@@ -106,6 +106,13 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Monthly Membership</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

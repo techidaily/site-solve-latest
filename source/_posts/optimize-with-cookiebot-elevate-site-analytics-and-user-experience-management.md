@@ -1,7 +1,7 @@
 ---
 title: "Optimize with Cookiebot: Elevate Site Analytics & User Experience Management"
-date: 2024-08-19 15:12:38
-updated: 2024-08-22 12:52:34
+date: 2024-08-21T15:24:22.232Z
+updated: 2024-08-22T15:24:22.232Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90367153732b7b65655c151cd.jpg
@@ -21,18 +21,27 @@ TIN and ABBYY surveyed the UK claims community in February 2021 to identify the 
 
 This report summarizes the outcomes of the survey and the issues raised during the keynote session at Virtual Digital Claims as well as some of the following sessions. The keynote session featured **Ian Thompson**, the Group Claims Director at **Zurich**, and **Eileen Potter**, Insurance Lead at **ABBYY** and was facilitated by **Jeremy Burgess** of **TIN**.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 There has been an unmistakable shift away from the business case for claims transformation being made around operational efficiency and cost savings. The main driver has become enhancing the customer experience (primarily, but not exclusively, digital): when asked, 57% of respondents chose “rethinking claims customer journeys” as the key driver. The conversation has changed from paying lip service to customer centricity and tactically tweaking the claims experience to fundamentally rethinking the claims experience in a much more strategic way.
 
 This has led insurers to look again at the ‘Holy Trinity of Transformation’ (People, Process and Technology) through the lens of a genuine customer centricity driven by the fact that in a post COVID world customer experience is set to be the key differentiator and driver of competitive advantage in claims.
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read the report](https://digital.abbyy.com/hubfs/content/report-insurance-TIN-digital-claims-en.pdf "Read the report") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

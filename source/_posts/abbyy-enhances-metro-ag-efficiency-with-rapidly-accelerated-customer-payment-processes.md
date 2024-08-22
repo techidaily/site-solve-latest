@@ -1,7 +1,7 @@
 ---
 title: ABBYY Enhances METRO AG Efficiency with Rapidly Accelerated Customer Payment Processes
-date: 2024-08-20 17:36:37
-updated: 2024-08-22 10:30:28
+date: 2024-08-21T15:24:22.961Z
+updated: 2024-08-22T15:24:22.961Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a500625454298afd84e9855ed4fbb6b.jpg
@@ -86,6 +86,9 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

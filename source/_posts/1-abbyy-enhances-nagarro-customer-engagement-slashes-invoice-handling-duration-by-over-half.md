@@ -1,7 +1,7 @@
 ---
 title: 1. ABBYY Enhances Nagarro Customer Engagement, Slashes Invoice Handling Duration by Over Half
-date: 2024-08-20 20:54:22
-updated: 2024-08-22 11:52:46
+date: 2024-08-21T15:24:22.308Z
+updated: 2024-08-22T15:24:22.308Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0dca80060c58b2b6bbf1021b5cfac76e3fa6cc6f30bafd7ebd2e3f93bc51e809.jpg
@@ -39,6 +39,9 @@ ABBYY has been recognized by more than 10 analyst firms as a leader in IDP inclu
 
 Nagarro, a global digital engineering leader, helps clients become fluidic, innovative, digital-first companies and thus win in their markets. The company is distinguished by its entrepreneurial, agile, global character, CARING mindset, and Fluidic Enterprise vision. Nagarro employs over 18,000 people in 36 countries. For more information, visit [www.nagarro.com](https://www.nagarro.com/en). You can find more information about the [Invoice Scanner here](https://www.nagarro.com/en/services/erp/sap/add-ons/invoice-scanner).
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 ### About ABBYY
 
 ABBYY puts your information to work. We combine innovation and experience to transform data from business-critical documents into intelligent actionable outcomes in over 200 languages in real time. We enable more than 10,000 companies globally, including many of the Fortune 500, to drive significant impact where it matters most: customer experience, operational excellence, and competitive advantage. ABBYY is a global company with headquarters in Milpitas, CA and offices in 12 countries, and is the [Official Intelligent Automation Partner of Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). For more information, visit [www.abbyy.com/company/about-us/](https://tools.techidaily.com/abbyy/products/) and follow us on [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) and [Facebook](https://www.facebook.com/ABBYYsoft).

@@ -1,7 +1,7 @@
 ---
 title: "ABBYY FineReader 15 Update : Améliorer Et Accélérer Votre Transition Numérique Avec Les Nouvelles Fonctionnalités"
-date: 2024-08-21 16:46:17
-updated: 2024-08-22 12:31:36
+date: 2024-08-21T15:24:22.965Z
+updated: 2024-08-22T15:24:22.965Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8edbdeedec707f11bb72a9ed7f55e988ffc8071bad7a0eaa9fbee4357c112fe7.jpg
@@ -66,3 +66,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->

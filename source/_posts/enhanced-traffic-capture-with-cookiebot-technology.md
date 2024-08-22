@@ -1,7 +1,7 @@
 ---
 title: Enhanced Traffic Capture with Cookiebot Technology
-date: 2024-08-19 11:25:29
-updated: 2024-08-22 11:15:19
+date: 2024-08-21T15:24:21.895Z
+updated: 2024-08-22T15:24:21.895Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016a043f7f7cbe8c68c234f33d.png
@@ -39,42 +39,70 @@ AI is rapidly becoming a commodity. It is also gaining traction in the telecoms 
 
 ![Telcos Embrace AI](https://static1.abbyy.com/abbyycommedia/25272/3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ## AR: Creating Immersive Experiences
 
 A few years ago, everyone was enamored with VR as the next big thing, but now the attention had shifted to augmented reality. The technology is used in a wide range of fields from gaming and entertainment to automotive and medicine. [According to Gartner](https://www.gartner.com/smarterwithgartner/mobile-world-congress-2018-ai-should-steal-the-show/), “By December 2018, Google expects almost every new Android smartphone to be AR-enabled, which will make new experiences and personalization more common.” In the near future, AR will help drivers, warehouse personnel, and management keep track of the product moving through the supply chain.
 
 ![AR: Creating Immersive Experiences](https://static1.abbyy.com/abbyycommedia/25273/4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Industrial IoT Is Making Waves
 
 Industrial IoT technologies (IIoT) are fueling the fourth industrial revolution. Today, we are witnessing the emergence of connected drones, robots and farm silos exchanging data. This creates abundant opportunities to transform how we work and produce goods, as well as raises serious questions about network security and stability: how are we going to manage all the data coming from myriads of devices around the world through global connectivity?
 
 ![Industrial IoT Is Making Waves](https://static1.abbyy.com/abbyycommedia/25274/5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Blockchain and Cryptocurrency Near Peak Hype
 
 Blockchain was a major buzzword in Barcelona this year. Today, many people think that it has the potential to disrupt almost every area of our lives; many mine and/or trade cryptocurrency. Especially for them, German cybersecurity firm Sikur launched SIKURPhone, the first fully encrypted phone with a cryptocurrency wallet. The phone runs a highly modified version of Android and is advertised to be “hack-proof”.
 
 ![Blockchain and Cryptocurrency Near Peak Hype](https://static1.abbyy.com/abbyycommedia/25275/6.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Smartphone Companies Bet on Cameras and Nostalgia
 
 In their ever-accelerating race, smartphone manufacturers continue to bet big on camera. At MWC 2018, Samsung announced its latest flagship smartphones, Galaxy S9 and S9+, with the cameras substantially upgraded. They come with a dual aperture lens and takes stunning shots in different lighting conditions. Users can also slow down time with the new Super Slow-Motion video mode and create animated 3D copies of themselves with AR emoji.
 
 ![Smartphone Companies Bet on Cameras and Nostalgia](https://static1.abbyy.com/abbyycommedia/25276/7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Other noteworthy phones at MWC include the pretty solid Nokia 8 Sirocco, Sony Xperia XZ2 and XZ2 Compact, Asus ZenFone 5 with the proverbial _notch_, and Vivo Apex concept phone with a fingerprint sensor built into the screen and a selfie camera that pops up like a piece of toast.
 
 HTC Global, the company making Nokia’s smartphones, unveiled Nokia 8110 4G aka “the banana phone” – the beloved slider now equipped with 4G connectivity, a 2MP rear camera, and a Qualcomm 205 SoC processor.
 
 ![Smartphone Companies Bet on Cameras and Nostalgia](https://static1.abbyy.com/abbyycommedia/25277/8.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Cars Are Getting Smarter
 
 Just like the majority of recent tech shows, MWC 2018 saw a wide variety of transportation and automotive tech representing the industry. BMW showcased their autonomous electric car i3 that you can summon using your smartphone. Once you take a seat in the back, you are free to relax and enjoy the entertainment system, while the car drives you wherever you need to be. When you arrive at your destination, you can just get out, lock the doors and go about your business – the car will find a parking spot and park itself.
 
 ![Cars Are Getting Smarter](https://static1.abbyy.com/abbyycommedia/25278/9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## Next-Gen Materials Will Give Us X-Ray Vision
 
 Ever heard of graphene? It is a next-generation ultra-light and flexible material showcased at MWC 2018 by Graphene Flagship, a €1B European research initiative. Graphene is 200 times stronger than steel and lighter than paper, which makes it well suited for a variety of tech applications like night vision, food inspection, fire control, vision under extreme weather conditions, and more.

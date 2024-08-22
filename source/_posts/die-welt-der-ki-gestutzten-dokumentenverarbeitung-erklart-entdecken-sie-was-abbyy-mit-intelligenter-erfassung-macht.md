@@ -1,7 +1,7 @@
 ---
 title: "Die Welt Der KI-Gestützten Dokumentenverarbeitung Erklärt: Entdecken Sie, Was ABBYY Mit Intelligenter Erfassung Macht"
-date: 2024-08-21 21:36:59
-updated: 2024-08-22 10:28:43
+date: 2024-08-21T15:24:22.429Z
+updated: 2024-08-22T15:24:22.429Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6ed8b5f1e4a621d2eef1f390.jpg
@@ -49,15 +49,24 @@ Um zu verstehen, was IDP ist und wie sie Unternehmen nützt, muss man wissen, wa
 * **IDP ist nicht nur OCR oder Datenerfassung.**  IDP umfasst zwar OCR- und Datenerfassungstechnologien, diese sind jedoch Teil eines größeren Pakets von Funktionen, die die Verarbeitung von Inhalten zusätzlich mit Fachwissen und Entscheidungsfindungsmethoden unterstützen.
 * **IDP ist keine robotische Prozessautomatisierung (Robotic Process Automation, RPA).**  RPA bezeichnet die Automatisierung eigenständiger Aufgaben innerhalb definierter Prozesse auf Basis von Daten. Da der Inhalt eine Quelle dieser Daten ist, ist es wichtig, den Inhalt im Kontext zu verstehen, bevor daraus Daten für verschiedene nachgelagerte Prozesse extrahiert werden können. Die [Robotic Process Automation](https://tools.techidaily.com/abbyy/products/) kann dies nicht allein leisten und benötigt daher die Unterstützung von IDP, um qualifizierte inhaltliche Entscheidungen zu treffen.
 * **IDP ist nicht dasselbe wie ChatGPT.** Viele Leute denken, ChatGPT sei dasselbe wie optische Zeichenerkennung (OCR), aber dem ist nicht so. In Wirklichkeit handelt es sich um ein Modell zur Verarbeitung natürlicher Sprache (NLP), das Deep-Learning-Algorithmen verwendet, um in menschlicher Sprache Textantworten auf Benutzeranfragen zu erzeugen. Dagegen ist ABBYY Vantage eine [IDP-Lösung,](https://tools.techidaily.com/abbyy/products/) die OCR-Technologie (Optical Character Recognition) einsetzt, um Daten aus Dokumenten verschiedener Art zu extrahieren, darunter [Rechnungen](https://tools.techidaily.com/abbyy/products/), Bestellungen, Verträge und vieles mehr.  
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Die Entwicklung der IDP  
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-de.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
 ## Wie funktioniert die intelligente Dokumentenverarbeitung? 
 
 IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten im umgebenden Text zur Entitätsextraktion, mit der automatisch und mit hoher Genauigkeit festgestellt wird, auf welche Entitäten verwiesen wird. Bezeichnet das Wort „Jaguar“ beispielsweise eine Großkatze oder ein Auto? Oder bezeichnet das Wort „Sue“ in einem englischen Text eine Person oder eine rechtliche Klage? Mittels NLP identifiziert und extrahiert IDP unstrukturierte Daten mit bisher unerreichter Präzision, wie ein menschliches Gehirn, das schnell auf veränderte Eingaben reagiert und das bestmögliche Ergebnis liefert. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/idp-scheme-848x444-b-de.png)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
 [FastML](https://tools.techidaily.com/abbyy/products/), ein neues kundenseitiges selbstlernendes Tool, verwendet visuelle und textuelle Extraktionsmethoden, was eine noch genauere Datenextraktion ermöglicht. Unternehmen, die sich einen Wettbewerbsvorteil verschaffen wollen, können die schwerfällige und inhaltsorientierte Arbeitslast auf intelligente Dokumentenverarbeitung und intelligente Automatisierungslösungen verlagern, damit ihre Mitarbeitenden Zeit haben, sich mit lohnenderen Aufgaben zu beschäftigen und bessere Kundenerlebnisse zu schaffen.
 
 ## Was sind die Vorteile der intelligenten Dokumentenverarbeitung? 
@@ -84,6 +93,9 @@ Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](h
 * festzulegen, wie sie mit Inhalten umgehen sollten, damit der Prozess besser funktioniert; und
 * die erforderlichen Document-Skills zur Optimierung der Verarbeitung von Inhalten anzuwenden.
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## IDP-Anwendungsfälle: Digitale Beherrschung Ihrer Daten und Prozesse 
 
 Die Vielseitigkeit intelligenter Dokumentenverarbeitungsanwendungen bedeutet, dass Dokumente in jeder Sprache, jedem Format und zu jeder Zeit in intelligenten Automatisierungslösungen genutzt werden können. Wir werden vier Anwendungsfälle in den Bereichen Versicherung, Neukundenaufnahme/KYC, Logistik und Kreditabwicklung untersuchen, um Beispiele für den Einsatz von IDP zu zeigen. 
@@ -125,6 +137,9 @@ Künstliche Intelligenz ist in aller Munde, und die Technologielandschaft entwic
 * **3\. Suchen Sie nach einer Lösung, die Ihren Anforderungen entspricht.**  
  Sobald Sie Ihre spezifischen Bedürfnisse ermittelt haben, wird es einfacher sein, eine Lösung zu finden, die Ihren Anforderungen entspricht. So können beispielsweise Daten in verschiedenen Sprachen vorliegen, die vor der Analyse oder Weiterleitung an ein anderes System übersetzt werden müssen. Möglicherweise gibt es strenge Datenschutzrichtlinien für die Verwendung der Daten, sodass Authentifizierungs- und Validierungsfunktionen in Ihrer IDP-Softwareplattform oberste Priorität haben werden. Auch die Klassifizierung und Integration von Daten ist ein wichtiger Schritt bei der automatischen Übernahme in bestehende Arbeitsabläufe. IDP kann Dokumente in vordefinierte Klassen einteilen, um die Arbeitslast zu organisieren und zu priorisieren, z. B. durch die Sortierung von Bewerbungen nach Datum oder von E-Mails in verschiedene Ordner, je nach ihrem Inhalt.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Die Zukunft der Dokumentenverarbeitung 
 
 Intelligente Dokumentenverarbeitung bietet Unternehmen eine Vielzahl von Vorteilen – wenn sie strategisch als wesentlicher Bestandteil des Kundenerlebnisses implementiert wird und die Prozesse dafür ausgelegt sind. Wenn zunächst ein Process Mining durchgeführt und eine solide Grundlage für die Implementierung geschaffen wird, können Unternehmen die Vorteile der IDP voll ausschöpfen, wie Kostensenkungen und Effizienzsteigerungen, die Einhaltung gesetzlicher Vorschriften sowie die Verbesserung des Erlebnisses von Mitarbeitenden und Kundschaft. 
@@ -183,6 +198,9 @@ Maxime Vermeir verfügt über ein Jahrzehnt an Erfahrung in den Bereichen Produk
 
 Nehmen Sie über [LinkedIn](https://www.linkedin.com/in/maximevermeir/)mit Max Kontakt auf.
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

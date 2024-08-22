@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Billing: How ABBYY and M-Files Revolutionize Invoicing Efficiency"
-date: 2024-08-20 22:26:50
-updated: 2024-08-22 10:54:37
+date: 2024-08-21T15:24:22.238Z
+updated: 2024-08-22T15:24:22.238Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/97d52aeba0c3812671b16d9ad71aaf02069e7e610c93642b0ee7efd4388d9316.jpg
@@ -57,6 +57,9 @@ M-Filesシステムは、支払い承認業務のワークフローを統制し�
 
 支払い業務プロセスを行うために、承認された請求書を財務経理部に送ります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ## 連携するメリット 
 
 ##### より精密な正確性の実現 
@@ -71,6 +74,9 @@ ABBYYを導入し、データキャプチャやデータの抽出を自動化す
 
 あらゆるシステムやレポジトリに蓄積された情報にアクセスし、活用できるようにするために、M-Filesはコンテキスト対応のエクスペリエンスを提供することで、サイロ化を防ぎます。ユーザーは、定着した従来のワークフローを止めたり、ユーザーエクスペリエンスを妨げたりすることなく、どこからでもコンテンツに簡単かつ安全にアクセスすることができます。
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## お客様の声 
 
 ABBYYとM-Files間で結ばれたパートナーシップによって、私たちは、個別に分かれているテクノロジーを最大限に活用できるようになりました。これにより、私たちの請求書処理プロセスが最適化され、サプライヤーにより良いサービスが提供できるようになったのです。私たちはABBYYと M-Filesのソリューションを使って、月に何千もの請求書を処理しています。また、業務コストを大幅に削減することもできました。これは、業務の処理時間が短縮され、ユーザーフレンドリーな請求書の検索や取り出しが作業を軽減してくれるようになったためです。 
@@ -85,6 +91,12 @@ ABBYY FlexiCapture for InvoicesとM-Filesを組み合わせることで、魅力
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/m-files.png?h=40&iar=0&w=120)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 ### 専門家に相談してみませんか？
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

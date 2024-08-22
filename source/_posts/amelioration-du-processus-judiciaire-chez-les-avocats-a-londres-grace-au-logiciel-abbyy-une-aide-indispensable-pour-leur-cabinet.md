@@ -1,7 +1,7 @@
 ---
 title: "Amélioration Du Processus Judiciaire Chez Les Avocats À Londres Grâce Au Logiciel ABBYY : Une Aide Indispensable Pour Leur Cabinet"
-date: 2024-08-21 19:20:27
-updated: 2024-08-22 11:23:29
+date: 2024-08-21T15:24:23.289Z
+updated: 2024-08-22T15:24:23.289Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e350204044526aae4dc95dcf2061d143539918222d877d21899914ec625ed9d1.jpg
@@ -93,6 +93,9 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

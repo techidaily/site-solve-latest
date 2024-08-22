@@ -1,7 +1,7 @@
 ---
 title: "Comprendre La Distinction Entre OCR Et IDP: Une Explication Détaillée"
-date: 2024-08-21 16:40:21
-updated: 2024-08-22 12:46:56
+date: 2024-08-21T15:24:23.320Z
+updated: 2024-08-22T15:24:23.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2ee82b6185002beb469144e3.jpg
@@ -37,6 +37,9 @@ Avant l’OCR, il fallait taper manuellement le texte pour saisir les données d
 
 ![](https://static1.abbyy.com/abbyycommedia/37740/ds-66-ocr-idp-image-1b.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Comment cela fonctionne-t-il
 
 L’OCR commence par un dossier dont vous voulez extraire des informations. Il peut s’agir du scan d’un document, d’un PDF, ou encore de documents pris en photo. Les plateformes modernes d’OCR peuvent automatiquement améliorer la qualité, ajouter du contraste, et renforcer la résolution pour améliorer la justesse de la reconnaissance. Puis, des algorithmes d’OCR utilisent des modèles d’extraction déjà formés pour identifier les mots et les lignes sur une image et extraire chaque caractère reconnu.
@@ -56,12 +59,18 @@ Les données extraites sont ensuite comparées à un ensemble de modèles et de 
 
 Parmi les exemples habituels d’utilisation de l’OCR, il y a l’usage qu’en font des entreprises pour faciliter leur conformité au droit civil et au droit du travail, en convertissant de grandes quantités de documents papier et numériques en formats accessibles et interrogeables ; les cabinets juridiques qui convertissent des contrats papier en formats numériques, modifiables et interrogeables pour l’eDiscovery (investigations en ligne) ainsi que pour l’analyse de données ; les entreprises de santé qui transfèrent les dossiers des patients dans leurs systèmes informatiques pour être en conformité avec la norme HIPAA ; les bibliothèques et les archives qui conservent des documents historiques en format numérique. Tout cela permet aux employés d’une structure donnée d’effectuer leurs différentes tâches quotidiennes liées à des documents de façon efficace, aux développeurs de logiciels de créer des services de contenu, des archives numériques, des systèmes de gestion des documents (DMS), des solutions ECM (pour la gestion des contenus dans l’entreprise), et bien d’autres.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Qu’est-ce que l’IDP ?
 
 [Le traitement intelligent des documents](https://tools.techidaily.com/abbyy/products/) **(IDP) permet de traiter directement les documents en capturant, extrayant et traitant automatiquement les données contenues dans les documents de l’entreprise,**  et ce pour quasiment n’importe quel processus, dans n’importe quel secteur d’activité.
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Comment cela fonctionne-t-il 
 
 L’IDP utilise la reconnaissance optique de caractères (OCR) pour convertir du texte imprimé ou manuscrit en texte dactylographié/lisible par des machines. L’IDP utilise également des techniques d’intelligence artificielle (IA) et de machine learning (ML) pour lire, comprendre et traiter les données structurées, semi-structurées ou non structurées contenues dans des documents, comme le ferait un humain.
@@ -88,6 +97,9 @@ La technologie IDP reflète fidèlement la façon dont les humains comprennent e
 * **Adaptabilité.** • Adaptabilité
 * **Intégration facile aux flux de travail de l’entreprise.**  L’IDP peut être intégré aux autres systèmes numériques et workflows (flux de travail) pour permettre une numérisation fluide et efficace des processus métier dans tous les départements de toute l’entreprise.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Quelle est la différence entre l’OCR et l’IDP ?
 
 L’OCR existe depuis longtemps et est connue en tant que technologie liée à la capture de données. **L’OCR existe depuis longtemps et est connue en tant que technologie liée à la capture de données.** 
@@ -105,6 +117,9 @@ Par exemple, il peut lire une facture, en extraire le contenu pour le comparer a
 | **Technologie**                  | Amélioration de l’image, Détection des objets, OCR / ICR                                                                                                                                                                                                                                     | Classification Machine Learning intense Machine Learning rapide Règles d’extraction Segmentation Reconnaissance nominative des entités (NER) Traitement du langage naturel (NLP)                                                                                                                                                                    |
 | **Exemples-types d’utilisation** | Met à disposition un texte lisible par les machines comme base pour : la conversion en PDF et l’archivage numérique / la recherche eDiscovery et la recherche de pointe / les techniques scientifiques numériques et l’analyse de données avec le traitement intelligent des documents (IDP) | Automatisation de tout processus métier centré sur les documents : automatisation de la comptabilité fournisseur, onboarding client / KYC, traitement des prêts, automatisation des documents de transport et de logistique, traitement des sinistres dans l’assurance                                                                              |
 
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Exemples de l’OCR et de l’IDP dans les processus métier
 
 #### Traitement des factures
@@ -131,6 +146,9 @@ Grâce au traitement intelligent des documents, vous pouvez éliminer les goulot
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## FAQ
 
 [L’IDP utilise-t-il l’OCR ?](https://tools.techidaily.com/abbyy/products/)

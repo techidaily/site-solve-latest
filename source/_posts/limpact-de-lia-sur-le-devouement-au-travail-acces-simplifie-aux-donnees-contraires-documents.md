@@ -1,7 +1,7 @@
 ---
 title: L'impact De L'IA Sur Le Dévouement Au Travail | Accès Simplifié Aux Données Contraires Documents
-date: 2024-08-19 22:40:23
-updated: 2024-08-22 11:53:29
+date: 2024-08-21T15:24:24.196Z
+updated: 2024-08-22T15:24:24.196Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -51,10 +51,16 @@ Cette étude a été menée par ABBYY en collaboration avec Sapio Research en se
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 **ABBYY**

@@ -1,7 +1,7 @@
 ---
 title: ABBYY Strengthens Market Presence Through International Alliances and OCR Advancements
-date: 2024-08-19 23:55:29
-updated: 2024-08-22 12:52:40
+date: 2024-08-21T15:24:21.718Z
+updated: 2024-08-22T15:24:21.718Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/988b0aa2e48e125d13283fa19f222d53a696ba967b4ae3ee4ad76e4ed04670c1.jpg
@@ -77,3 +77,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->

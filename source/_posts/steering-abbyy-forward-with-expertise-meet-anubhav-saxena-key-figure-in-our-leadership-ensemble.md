@@ -1,7 +1,7 @@
 ---
 title: Steering ABBYY Forward with Expertise - Meet Anubhav Saxena, Key Figure in Our Leadership Ensemble
-date: 2024-08-20 17:11:34
-updated: 2024-08-22 11:32:58
+date: 2024-08-21T15:24:23.947Z
+updated: 2024-08-22T15:24:23.947Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e2bd7441f115d457631670c7835514cc1e1ad27ead792a165abad33ef124056a.jpg
@@ -41,3 +41,7 @@ Anubhav is a TiE Charter Member, Silicon Valley, an invitation-only program for 
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
+<!-- affiliate ads end -->

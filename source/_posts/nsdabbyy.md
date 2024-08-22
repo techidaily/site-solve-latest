@@ -1,7 +1,7 @@
 ---
 title: "株式会社NSDとABBYYジャパンが認定パートナー関俁契約に至る:業界最新ニュース"
-date: 2024-08-21 23:28:27
-updated: 2024-08-22 11:12:44
+date: 2024-08-21T15:24:24.208Z
+updated: 2024-08-22T15:24:24.208Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff84337aa8bb982a08609d9e6.jpg
@@ -100,3 +100,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

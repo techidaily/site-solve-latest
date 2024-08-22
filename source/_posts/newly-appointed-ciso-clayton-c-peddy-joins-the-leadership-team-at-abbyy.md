@@ -1,7 +1,7 @@
 ---
 title: "Newly-Appointed CISO: Clayton C. Peddy Joins the Leadership Team at ABBYY"
-date: 2024-08-21 16:30:10
-updated: 2024-08-22 11:26:35
+date: 2024-08-21T15:24:22.557Z
+updated: 2024-08-22T15:24:22.557Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/febc5e8eb723097c959ee0c4369a98c541397c828606f3e607457279dcc62863.jpg
@@ -61,3 +61,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

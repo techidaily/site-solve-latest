@@ -1,7 +1,7 @@
 ---
 title: "Meister Ihrer Zukunft: ABBYY Berufsmöglichkeiten Und Ihre Auswirkungen Erkennen"
-date: 2024-08-19 22:32:29
-updated: 2024-08-22 12:40:19
+date: 2024-08-21T15:24:21.980Z
+updated: 2024-08-22T15:24:21.980Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/785001e91f8bbdf4e7474535d4ba50bd393e2799492e36ec293bae7933072be9.jpg
@@ -103,34 +103,59 @@ Der Reichtum liegt in der Vielfalt unserer kollektiven Erfahrungen, unserer Gesc
 
 Wie die meisten erfolgreichen Unternehmen sind wir bestrebt, unser Produkt so zu gestalten, dass wir es von anderen abheben und unsere Kunden besser bedienen können; dazu müssen wir in der Lage sein, innovativ zu sein – Innovation ist eine Funktion der Herausforderung und des nicht-linearen Denkens, was wiederum durch Personen ermöglicht wird, die unterschiedliche Perspektiven vertreten. Um vielfältige Talente einzustellen und zu halten, müssen wir ein integratives Umfeld bieten – eine Gemeinschaft, in der Unterschiede gefeiert werden und der wir uns alle zugehörig fühlen können. Das ist unser Bestreben und unsere Vision für ABBYY. 
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Ökologische und soziale Verantwortung 
 
 Bei ABBYY sind Initiativen im Bereich Umwelt und soziale Verantwortung seit langem von entscheidender Bedeutung. Unsere Produkte helfen nicht nur Hunderten von Kundinnen und Kunden auf der ganzen Welt, Ineffizienzen zu verringern und ihr Ressourcenmanagement zu verbessern, sondern wir haben auch eigene Initiativen entwickelt, um Nachhaltigkeit und soziale Verantwortung zu fördern. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_checkmark-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Für jedes abgeschlossene Geschäft wird ein Baum gepflanzt 
 
 Für jeden neuen Kundenvertrag spenden wir über One Tree Planted einen Baum und haben 2021 über 2.000 Bäume gepflanzt. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_people_employee-1-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##### Bezahlter Urlaub für einen guten Zweck 
 
 Alle Mitarbeitenden erhalten zwei bezahlte Tage pro Jahr, um Organisationen zu unterstützen, die ihnen am Herzen liegen. Im vergangenen Jahr wurden über 40 Organisationen unterstützt. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_mountain-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ##### Auf unserem Weg zur Klimaneutralität 
 
 Ab 2023 messen wir unseren CO2-Fußabdruck bei Reisen und investieren in Ausgleichsprogramme. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/2-color-16/_misc_heart-64.svg?h=64&iar=0&w=64)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
 ##### Unsere ABBYY-Sommer-Challenge 
 
 Jedes Jahr veranstalten wir einen weltweiten Sportwettbewerb, bei dem für jeden gelaufenen, geradelten, gewanderten oder geschwommenen Kilometer unserer Kolleginnen und Kollegen Spenden für wohltätige Zwecke gesammelt werden. 
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Erfahren Sie mehr über ABBYY 
 
 Das führende Unternehmen für KI-gesteuerte intelligente Automatisierung 

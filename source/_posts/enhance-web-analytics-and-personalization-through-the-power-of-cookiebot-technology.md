@@ -1,7 +1,7 @@
 ---
 title: Enhance Web Analytics and Personalization Through the Power of Cookiebot Technology
-date: 2024-08-21 23:17:49
-updated: 2024-08-22 10:35:50
+date: 2024-08-21T15:24:23.489Z
+updated: 2024-08-22T15:24:23.489Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5e09a4926c03b7375439c87dd90fb6aec125852037ee13474e8f33d11312ce4c.jpg
@@ -34,6 +34,12 @@ The first AI-powered scanner to quickly capture docs and books, create copies in
 
 ![Instead of desktop scanner](https://www.abbyy.com/media/3792/01-features-1-instead-of-desktop.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Instead of desktop scanner
 
 Scan any printed or hand-written papers, create perfect digital copies and save them to JPEG or PDF documents.
@@ -46,20 +52,35 @@ Neural network analyzes your gallery and automatically splits photos into seven 
 
 ![Classify and search with AI](https://www.abbyy.com/media/3793/02-features-2-search.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Extract text from scans](https://www.abbyy.com/media/3794/03-features-3-extracttext.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4621764&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.x-mirage.com/x-mirage/img/page-home.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Extract text from scans
 
 Extract text from scans offline or use online recognition to preserve the original document formatting. Supports [183 languages and 4 formats](https://tools.techidaily.com/abbyy/products/).
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Export anywhere
 
 Share your scans with everyone on the go: email, print, or save to cloud storage, including Google Drive, Dropbox, Evernote, iCloud Drive and more.
 
 ![Export anywhere](https://www.abbyy.com/media/3797/06-features-6-exportanywhere.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![Annotate scans](https://www.abbyy.com/media/3796/05-features-5-annotate-documents.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Annotate scans
 
 Use our set of easy-to-use tools to modify your PDFs: add your signature or a text box, use highlighter, write with a pen, or conceal sensitive content with the redaction tool.
@@ -72,6 +93,9 @@ This app makes working in sales much more convenient. We have to work with a lot
 
 ![What our customers say](https://www.abbyy.com/media/1417/g2-review-nophoto.png?width=64&height=64)**Hhskojx h** 15 Jan. 2021
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 ### "Fantastic-Everyday Use"
 
 Today I scanned my document to store in iCloud. With a touch of a button (open up your camera on an iPhone) take a picture, crop the picture to your desired results and now your document is stored in a safe place and can be sent from a smart phone either by email or text message given your choices in regards to what device you have.
@@ -87,14 +111,27 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 ![FR Mobile man reviews](https://www.abbyy.com/media/2575/fr-mobile-man-reviews.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ## Awards and press
 
 [![The Webby Awards logo](https://www.abbyy.com/media/2489/01b-webby-grey.png)![The Webby Awards logo](https://www.abbyy.com/media/2490/01-webby-color.png)](http://webbyawards.com/winners/2015/mobilesitesapps/handhelddevices/productivity/finescanner/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
 [![Fox Business](https://www.abbyy.com/media/2491/02b-fox-grey.png)![Fox Business](https://www.abbyy.com/media/2492/02-fox-color.png)](http://www.foxbusiness.com/features/2017/10/23/50-best-cloud-services-for-smbs.html)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698832&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/karaoki-new-searchresultspane.jpg" border="0">PCDJ Karaoki is the complete professional karaoke software designed for KJs and karaoke venues. Karaoki includes an advanced automatic singer rotation list with singer history, key control, news ticker, next singers screen, a song book exporter and printer, a jukebox background music player and many other features designed so you can host karaoke shows faster and easier! 
+ PCDJ Karaoki (WINDOWS ONLY Professional Karaoke Software - 3 Activations)</a>
+<!-- affiliate ads end -->
 [![ABBYY FineScanner AI 8 - Smart scanner app to make your remote work easy | Product Hunt](https://api.producthunt.com/widgets/embed-image/v1/featured.svg?post_id=281738&theme=light)](https://www.producthunt.com/posts/abbyy-finescanner-ai-8?utm%5Fsource=badge-featured&utm%5Fmedium=badge&utm%5Fsouce=badge-abbyy-finescanner-ai-8)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 [![Mobile Village logo](https://www.abbyy.com/media/2495/04b-mobile-star-grey.png)![Mobile Village logo](https://www.abbyy.com/media/2496/04-mobile-star-color.png)](http://www.mobilevillage.com/abbyy-mobile-apps/)
 
 [![Lifehacker logo](https://www.abbyy.com/media/2493/03b-lifehacker-grey.png)![Lifehacker logo](https://www.abbyy.com/media/2494/03-lifehacker-color.png)](http://lifehacker.com/five-best-mobile-document-scanning-apps-1691417781#pd%5Fa%5F8725103)
@@ -105,8 +142,14 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 [![Discovery logo](https://www.abbyy.com/media/2501/08b-discovery-grey.png)![Discovery logo](https://www.abbyy.com/media/2502/08-discovery-color.png)](http://newswatchtv.com/2016/10/21/newswatch-discovery-channel-appwatch-finescanner/)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Touchit logo](https://www.abbyy.com/media/2503/09b-touchit-grey.png)![Touchit logo](https://www.abbyy.com/media/2504/09-touchit-color.png)](https://touchit.sk/abbyy-premente-smartfon-na-profesionalny-vreckovy-skener/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
+<!-- affiliate ads end -->
 [![Macwelt logo](https://www.abbyy.com/media/2505/10b-macwelt-grey.png)![Macwelt logo](https://www.abbyy.com/media/2506/10-macwelt-color.png)](https://www.macwelt.de/a/test-abbyy-scanapps-mit-texterkennung-fuer-mac-und-ios,3437011)
 
 [![Business Insider](https://www.abbyy.com/media/2507/11b-business-insider-grey.png)![Business Insider](https://www.abbyy.com/media/2508/11-business-insider-color.png)](http://www.businessinsider.com/productivity-strategy-10-minutes-a-day-2017-6)
@@ -115,6 +158,13 @@ Today I scanned my document to store in iCloud. With a touch of a button (open u
 
 [![Techradar](https://www.abbyy.com/media/2487/13b-techradar-grey.png)![Techradar](https://www.abbyy.com/media/2488/13-techradar-color.png)](https://www.techradar.com/uk/best/best-document-scanning-apps)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 ## OCR Specification
 
 [4 file types for recognized documents](https://tools.techidaily.com/abbyy/products/)[183 recognition languages](https://tools.techidaily.com/abbyy/products/)
@@ -511,16 +561,29 @@ Latvian (Fraktur font)_×_ _×_
 
 [![appstore_squared_160x46_new](https://www.abbyy.com/media/3790/appstore_squared_160x46_new.svg)](https://fsfree.onelink.me/RsYZ/frwinweb) 
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## More awesome tools for your productivity
 
 ![](https://www.abbyy.com/media/2513/bcr-logo-80x80.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### ABBYY Business Card Reader
 
 Scan and manage all your business cards and contacts in a flash.
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## FineReader Blog
 
 Visit our Blog for tips, trends & use cases for higher document productivity.
@@ -535,6 +598,9 @@ FineReader for Mobile — The Answers to Nine Frequently Asked Questions
 
 [![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) ![seven-tips-for-creating-ideal-scans-cover](https://www.abbyy.com/media/4186/seven-tips-for-creating-ideal-scans-cover.png) Seven Tips for Creating Ideal Mobile Scans](https://www.abbyy.com/blog/mobile/seven-tips-for-creating-ideal-scans/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->
 [![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) ![14323_15_features in 15 minutes_841x360](https://www.abbyy.com/media/3399/14323_15_features-in-15-minutes_841x360.png) 15 Mobile Tips for Digital Transformation in the Legal Industry](https://www.abbyy.com/blog/15-mobile-tips-for-digital-transformation-in-the-legal-industry/) 
 
 ## Subscribe to our newsletter

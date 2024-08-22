@@ -1,7 +1,7 @@
 ---
 title: "Innovation en IA: Comment La Plateforme FlexiCapture D'ABBYY Utilise Le Machine Learning Pour L'optimisation"
-date: 2024-08-19 16:29:23
-updated: 2024-08-22 11:10:15
+date: 2024-08-21T15:24:22.200Z
+updated: 2024-08-22T15:24:22.200Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7a6d4afad02b673dd8fdf74213202fda14f2e9bab9fdc0e7dfd2736277416b15.jpg
@@ -74,3 +74,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->

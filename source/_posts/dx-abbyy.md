@@ -1,7 +1,7 @@
 ---
 title: "デジタル変革で財務業務を強化:会計支払いにおけるDXのコツとは? | 知られざるABBYYの洞察"
-date: 2024-08-21 17:34:24
-updated: 2024-08-22 10:46:50
+date: 2024-08-21T15:24:23.811Z
+updated: 2024-08-22T15:24:23.811Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d5157fd08cb0485ba961e5e9e263be5ee6676590cf3c102628e197e9ee7e9e16.jpg
@@ -31,24 +31,39 @@ thumbnail: https://thmb.techidaily.com/d5157fd08cb0485ba961e5e9e263be5ee6676590c
 
 ピータードラッカーによる有名な格言はAP（会計部門での支払いプロセス）にも当てはまります。 それを測定できなければ、それを改善することはできません。まず、データを基にした分析を通じて、会計部門での支払いおよびその他の財務プロセスが実際にどのように機能しているかを検知し、視覚化します。 そして、障害になっている作業とプロセスを洗いだし、効率的な作業方法を確立し、コスト削減が最適化される部分をピンポイントで特定します。こちらを支援するプロセスマイニングツール、[ABBYY Timeline](https://tools.techidaily.com/abbyy/products/)の活用も一つの手段となります。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### コロナ危機による永久に続くと思われた紙処理の変化
 
 紙はビジネスプロセスを非効率にしている最大の原因であり、今回のコロナウィルス流行は状況を悪化させただけです。 今回のコロナ危機の結果として生じた小さな希望の1つは、やっとサプライヤが書類配送ではなく電子メールやその他の手段で請求書を送信するきっかけとなったことです。 請求書の受領とエンドツーエンドのプロセス全体をさらに自動化することで、この傾向を活用していくことが、必要となります。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 自分たちの請求書の把握
 
 企業、組織の請求書エコシステムは独自のものであり、バラバラです。 請求書の量、請求書元の数をよく理解し、請求書の複雑さを考慮しましょう。 つまり、請求書に表と明細が含まれているかどうか、さまざまな国から届いているかどうか、さまざまな言語がつかわれているかどうか等の考慮です。 自動化システムが自分たちの特定のニーズをサポートしているかどうかを確認する必要もあります。
 
 ![digital invoices on laptop](https://static1.abbyy.com/abbyycommedia/29573/shift-to-long-term-transformation-in-ap-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<!-- affiliate ads end -->
 ### AIの現状、現実の把握
 
 多くの企業リーダーは、昔からある自動化システムが時代遅れであり、許容レベルまで達成できないという厳しい経験をしています。 幸いなことに、新世代のよりスマートなAI対応テクノロジーが利用可能であり、調査すること可能ですので、すべきです。 例えば、[ABBYYによる請求書の自動化](https://tools.techidaily.com/abbyy/products/)は、畳み込みニューラルネットワーク（CNN）を活用することで、新しい取引先の請求書のテンプレートを作成する必要性を回避します。 機械学習も有効になっているため、システムがよりスマートになり、使用することでパフォーマンスが向上します。
 
+<!-- affiliate ads begin -->
+<a href="https://thefitville.pxf.io/c/5597632/1526796/15852" target="_top" id="1526796"><img src="//a.impactradius-go.com/display-ad/15852-1526796" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1526796/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 会計支払い処理を超えて考えよう！
 
 コロナ危機の前でさえ、企業の財務組織は、方策的な経費とその報告センターから分析能力センターとしての戦略的な機能へと進化していました。 この進化は自動化によって実現されます。 確かに、会計支払い部門は、大量の紙からの転記作業という性質と、組織の全社的なデジタルトランスフォーメーション（DX）の最初の領域であることが多いため、財務において最も「自動化可能な」領域です。 販売管理、出張と経費、財務管理、外部レポートなど、調査すべき主要な領域である他のプロセスも検討しましょう。他のプロセスや発注書や領収書などの会計関連文書もサポートできるテクノロジーに投資しましょう。
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### さらに学ぼう
 
 このブログ投稿を読んでいる方々
@@ -61,6 +76,9 @@ thumbnail: https://thmb.techidaily.com/d5157fd08cb0485ba961e5e9e263be5ee6676590c
 
 ![Daneen Storc ABBYY](https://static4.abbyy.com/abbyycommedia/25721/daneen-retouched-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 Daneen Storc
 
 ### いいね！、シェア、再投稿

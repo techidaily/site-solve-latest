@@ -1,7 +1,7 @@
 ---
 title: "Gérez Vos Factures en Un Clin D'œil Grâce À La Solution ABBYY : Le Partenaire Idéal Pour Les Associations De Logement À Grande Échelle"
-date: 2024-08-20 22:40:15
-updated: 2024-08-22 10:24:24
+date: 2024-08-21T15:24:22.172Z
+updated: 2024-08-22T15:24:22.172Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/de67db97111b230778d53cfacb51bb9c7a1356b2082aff96997373a5633f37e3.jpg
@@ -129,6 +129,9 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

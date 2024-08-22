@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Streamlining Data Compliance & Personalization Across the Web"
-date: 2024-08-20 22:55:25
-updated: 2024-08-22 12:58:38
+date: 2024-08-21T15:24:23.040Z
+updated: 2024-08-22T15:24:23.040Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ceecc558739dbb36535dbfcf9.jpg
@@ -43,6 +43,9 @@ OCR 処理は、情報抽出したいファイルから始まります。この�
 
 抽出されたデータは、既知の文字や記号を表す定義済みのパターンやテンプレートのセットと照合されます。その過程において、機械学習やニューラルネットワークなどの技術を組み込んで認識精度を向上させながら、異なるフォントや言語、表やリスト、バーコードなどの複雑なレイアウトに対応するための調整を行います。問題が発生した場合は、人間による評価を行うためにフラグを立てることも可能です。文字認識プロセスが完了したら、スペルチェック、文脈分析、言語モデリングなどを使ってエラーをチェックしながら、精度を向上させていきます。その後、OCRソフトウェアが最終的な機械可読テキストを作成したら、コンピューターシステムへの統合が可能となります。
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### OCRのメリット
 
 [OCR](https://tools.techidaily.com/abbyy/products/)は、文書を多用するあらゆる業界にとって不可欠な技術です。従業員が日々行っている現行の文書処理業務に取り入れたり、アーカイブをデジタル化したりすることができるだけでなく、医療文書や物流文書など大量の文書を処理してアクセス可能なデジタル文書保管庫を作成することも可能です。
@@ -56,12 +59,21 @@ OCR 処理は、情報抽出したいファイルから始まります。この�
 
 OCRソリューションの一般的な使用例としては、大量の紙文書やデジタル文書をアクセシブルで検索可能なフォーマットに変換することで、政府や企業の規制へのコンプライアンスを促進する組織、検索、eDiscovery、データ分析のために紙の契約書を編集可能なデジタルフォーマットに変換する法律事務所、HIPAAコンプライアンスを維持するために患者の記録をコンピュータシステムに転送するヘルスケア企業などが挙げられます。 図書館や公文書館では、歴史的文書をデジタル形式で保存することで、スタッフが日々のさまざまな文書関連業務を効率的に行えるようにします。ソフトウェア開発会社では、コンテンツサービス、デジタルアーカイブ、文書管理システム（DMS）、エンタープライズコンテンツ管理（ECM）ソリューションなどを開発しています。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## IDPとは？
 
 [インテリジェント文書処理](https://tools.techidaily.com/abbyy/products/)**(IDP) は**、あらゆる業界のあらゆるプロセスにおいて、ビジネス文書に埋め込まれたデータを自動的に取り込み、抽出・処理することで、文書のストレートスルー処理を可能にします。
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 仕組み
 
 IDPは、光学式文字認識（OCR）をを活用して、印刷物や手書き文字をテキスト化し、コンピューターが読み取れるフォーマットに変換します。さらに、人工知能（AI）と機械学習（ML）の技術を応用して、定型、準定型、非定型データの文書を人間のように読み取り、理解・処理します。
@@ -121,6 +133,9 @@ IDPテクノロジーは、人間がドキュメントを理解し管理する�
 
 インテリジェント文書処理で、デジタル化がうまくいかない原因となるボトルネックを解消することができます。[企業はIDP技術を利用して身元証明や](https://tools.techidaily.com/abbyy/products/)身元確認を行うことができ、顧客にとってはより簡単に、企業にとってはより安全になります。IDPは、運転免許証やパスポートのようなID文書、あるいは銀行取引明細書や公共料金請求書のような住所証明に必要な文書を取り込み、分類することができます。例えば、自動車局（DMV）が運転免許証の更新に使ったり、銀行が住宅ローンの申請に使ったりすることができます。
 
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## OCR vs IDP： 貴社のビジネスに最適な導入手段とは？
 
 **OCRは時にIDPプラットフォームと誤解されることがありますが、実際にはIDPの方がはるかに幅広い機能を備えています。**OCRは主に、画像や文書から全文を抽出し、コンピューター画面上で転送・編集できるようにすることに重点を置いています。さまざまなフォントスタイル、画像、手書きメモを認識し、編集・検索可能なデジタルテキストに変換します。デジタル・アーカイブ・ソリューションや、優れたテキスト認識、PDF変換、データキャプチャ機能を必要とする支援技術の開発を目指す企業には、OCRソリューションが最適です。[ABBYYのOCRソフトウェア開発キット](https://tools.techidaily.com/abbyy/products/)（SDK）を使用して、優れた文書キャプチャ機能を得ることができます。
@@ -169,6 +184,9 @@ OCR（光学式文字認識）とIDP（インテリジェント文書処理）�
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 Slavena Hristova
 
 ABBYY Vantageグループ、 製品マーケティングディレクター

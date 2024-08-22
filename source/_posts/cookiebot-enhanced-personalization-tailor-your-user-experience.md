@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enhanced Personalization: Tailor Your User Experience"
-date: 2024-08-20 16:51:35
-updated: 2024-08-22 12:25:32
+date: 2024-08-21T15:24:23.017Z
+updated: 2024-08-22T15:24:23.017Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6bf5f8c3a7d4525074ba1b28f14c511bc7c37f5e8a7742b128774ee55042b67a.jpg
@@ -86,6 +86,10 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

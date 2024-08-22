@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Umgestaltet Für Globales Expansion: Neue Wege Der Innovation"
-date: 2024-08-21 20:13:57
-updated: 2024-08-22 10:55:50
+date: 2024-08-21T15:24:23.278Z
+updated: 2024-08-22T15:24:23.278Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3485122afbd86c9e9c462c3f4114e1a2939bb988f69531afc473f2a12af7b022.jpg
@@ -83,3 +83,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DBanner%2B728x90"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/2e76fe6a-3010-1b37-7846-f34ff9c6b4ca.png" border="0"></a>
+<!-- affiliate ads end -->

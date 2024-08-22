@@ -1,7 +1,7 @@
 ---
 title: "ABBYY M-Files: Highlights Der Neuesten KI-Integrationstechnologien"
-date: 2024-08-21 21:12:48
-updated: 2024-08-22 10:27:36
+date: 2024-08-21T15:24:22.639Z
+updated: 2024-08-22T15:24:22.639Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d1b957d75a545d4bf761b1ab71e56a83f74f572b9cfdc1f2dd93c379e17f7085.jpg
@@ -90,3 +90,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1095219&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-20_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->

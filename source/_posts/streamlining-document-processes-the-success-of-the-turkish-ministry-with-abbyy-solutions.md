@@ -1,7 +1,7 @@
 ---
 title: "Streamlining Document Processes: The Success of the Turkish Ministry with ABBYY Solutions"
-date: 2024-08-19 22:36:50
-updated: 2024-08-22 12:53:42
+date: 2024-08-21T15:24:24.215Z
+updated: 2024-08-22T15:24:24.215Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6be5b234be2302864f9331a3a3d7aaacb0018bce1f2511014ae677fbeed4c8da.jpg
@@ -92,6 +92,9 @@ Increased effectiveness of document processes and significantly reduced the tota
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

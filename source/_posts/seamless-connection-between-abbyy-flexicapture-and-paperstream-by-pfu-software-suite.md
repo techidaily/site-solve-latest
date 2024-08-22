@@ -1,7 +1,7 @@
 ---
 title: Seamless Connection Between ABBYY FlexiCapture and PaperStream by PFU Software Suite
-date: 2024-08-20 20:39:59
-updated: 2024-08-22 11:16:31
+date: 2024-08-21T15:24:22.253Z
+updated: 2024-08-22T15:24:22.253Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fb5f458ad35f6a8088f1d0bc0256a6dfcf5f90caa0def063b41c33922ff4a5cb.jpg
@@ -79,3 +79,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->

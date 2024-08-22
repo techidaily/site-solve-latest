@@ -1,7 +1,7 @@
 ---
 title: "Empowering Websites with Cookiebot Technology: The Path to Successful SEO and Personalization"
-date: 2024-08-19 19:34:41
-updated: 2024-08-22 10:27:38
+date: 2024-08-21T15:24:21.852Z
+updated: 2024-08-22T15:24:21.852Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046dfa0556ebd9b84053509fd9.png
@@ -32,6 +32,9 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30089/pic-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537547&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/vcfpro.png" border="0">Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ### 2\. 仕分け用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションで、仕分け用トレーニングバッチを選択し、新規バッチを作成します。
@@ -42,6 +45,9 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30091/pic-3.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 各サンプル画像に対し、仕分けしたいクラス（文書定義）を選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30092/pic-4.png)
@@ -50,6 +56,9 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30093/pic-5.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. 仕分けトレーニング（仕分け学習）とトレーニング結果の設定
 
 ステップ2で仕分けトレーニングの準備が整いましたので、学習ボタンをクリックし、トレーニングを実行、結果を確認します。
@@ -60,6 +69,13 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30095/pic-7.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
+This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. 作業バッチで結果を確認
 
 作業バッチでテスト画像を読み込み、正しく仕分けが行われることを確認します。
@@ -70,22 +86,34 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 データ抽出設定・確認方法は、次の4ステップになります。  
 ※文書仕分けについては既に設定済である事を前提とします。
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. フィールド追加
 
 対象の文書定義にトレーニングしたいフィールドを追加します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30097/pic-9.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. データ抽出用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションのフィールド抽出用トレーニングバッチで新規バッチを作成します。その際、「文書定義セクションの選択」で該当する文書定義 > セクションを選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30098/pic-10.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
+<!-- affiliate ads end -->
 次に、作成したバッチにトレーニング用のサンプル画像ファイルを読み込み、認識を実行します。また、それぞれのサンプル画像に対し「学習用」「テスト用」を設定します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30099/pic-11.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4572700&QTY=1&AFFILIATE=108875&CART=1"><img src="	https://www.tubedigger.com/wp-content/uploads/2020/08/tubedigger-software-new.png" border="0">TubeDigger - online video downloader from mostly any site</a>
+<!-- affiliate ads end -->
 ### 3\. フィールド抽出トレーニングの実施
 
 「学習用」のサンプルドキュメントに対し、各フィールドの正しい位置をクリック、または囲い込みにより指定します。
@@ -104,6 +132,9 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30102/pic-14.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 いかがでしょうか？
 
 簡単かつ直感的に文書仕分け・データ抽出の設定が可能であることがお分かりいただけたかと思います。

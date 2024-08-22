@@ -1,7 +1,7 @@
 ---
 title: Cattolica Assicurazioni Adotta L'Elaborazione D Documenti Intelligenti per Ottimizzare I Processi Aziendali
-date: 2024-08-20 19:36:36
-updated: 2024-08-22 10:36:26
+date: 2024-08-21T15:24:23.000Z
+updated: 2024-08-22T15:24:23.000Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/954afef8b3467f4a3bd6be4e616e7e9c0c40d6a5dfa6d1b3e758e9ac9f354ba6.jpg
@@ -27,10 +27,16 @@ Head of Automation, **Cattolica Assicurazioni**
 
 ![Alessandro Petriola](https://static5.abbyy.com/abbyycommedia/35573/alessandropetriola-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Alessandro Petriola
 
 Rüobotic Process Automation Senior Consultant, **Sprint Reply**
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Panoramica
 
 Con la pandemia globale in corso, è cresciuta rapidamente la necessità delle aziende di accelerare e ottimizzare la propria trasformazione digitale. Questo va oltre la semplice digitalizzazione degli asset cartacei. Le imprese devono infatti ripensare come gestire i nuovi contenuti digitali, dando priorità all’esperienza del cliente.
@@ -44,19 +50,31 @@ Questa soluzione è applicabile in tutte le industry, ed è rivolta principalmen
 
 **Registrati** e **scopri** come Cattolica Assicurazioni abbia automatizzato i propri processi cartacei grazie all’aiuto di Sprint Reply.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Guarda ora!
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Grazie, buona visione!
 
 [![Come Cattolica Assicurazioni](https://static1.abbyy.com/abbyycommedia/34330/come-cattolica-assicurazioni.jpg)](https://www.youtube.com/watch?v=SUlJCCJcGHg) 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
 #### Hai domande? [Contatta ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

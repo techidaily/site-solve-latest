@@ -1,7 +1,7 @@
 ---
 title: "Adopting Cloud Solutions: TrustID Implements ABBYY OCR for Enhanced Identity Verification"
-date: 2024-08-19 21:58:43
-updated: 2024-08-22 10:43:48
+date: 2024-08-21T15:24:24.003Z
+updated: 2024-08-22T15:24:24.003Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/452ad4dc833c22f824c1e0bb341979346435ef6ab644bfbf893f7206f9b144d3.jpg
@@ -67,3 +67,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->

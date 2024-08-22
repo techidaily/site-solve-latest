@@ -1,7 +1,7 @@
 ---
 title: ABBYY Announces Markus Pichler as Its Latest Sales VP for European Operations
-date: 2024-08-20 16:44:39
-updated: 2024-08-22 12:22:51
+date: 2024-08-21T15:24:23.261Z
+updated: 2024-08-22T15:24:23.261Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d273051a98d6681ad00d9eef8a0a1e7b14cf2a7e1a69ef55a0c0753824f4548a.jpg
@@ -57,3 +57,12 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

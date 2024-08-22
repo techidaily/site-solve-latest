@@ -1,7 +1,7 @@
 ---
 title: "Leading the Smart Doc Revolution: How ABBYY Emerged as Chief Player Based on ISG and Quadrant Assessments"
-date: 2024-08-19 13:53:40
-updated: 2024-08-22 11:46:32
+date: 2024-08-21T15:24:23.898Z
+updated: 2024-08-22T15:24:23.898Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/06e60fe3d947d58be6e231820ad1f116434db798e239b52d730db0c4a5927ced.jpg
@@ -45,10 +45,16 @@ La reconnaissance d’ABBYY en tant que leader de l’IDP intervient après le l
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

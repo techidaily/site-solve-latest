@@ -1,7 +1,7 @@
 ---
 title: "Announcing Paul Nizov: The Latest Addition as ABBYY's Chief Information Security Officer"
-date: 2024-08-20 19:27:55
-updated: 2024-08-22 11:30:19
+date: 2024-08-21T15:24:23.672Z
+updated: 2024-08-22T15:24:23.672Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fe4b0191212c8e41c031bf23c61d1f9123e35ac3bb319d7b6d127b4e0747eef8.jpg
@@ -54,3 +54,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->

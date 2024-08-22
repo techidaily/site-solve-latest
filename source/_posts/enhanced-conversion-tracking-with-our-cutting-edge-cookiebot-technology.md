@@ -1,7 +1,7 @@
 ---
 title: Enhanced Conversion Tracking with Our Cutting-Edge Cookiebot Technology
-date: 2024-08-20 19:33:13
-updated: 2024-08-22 11:54:25
+date: 2024-08-21T15:24:23.072Z
+updated: 2024-08-22T15:24:23.072Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/31a47d0813e0a73316845fc7d36338a492235a7e4fd705568291b1b8a09d30a6.jpg
@@ -33,6 +33,9 @@ The analysts wanted a process mining solution that would easily visualize all of
 * Determine how many transactions are processed straight through
 * Identify processes where redesign and automation offer the best ROI
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
+<!-- affiliate ads end -->
 ### Solution
 
 ABBYY Process Intelligence aggregated event data from two million transactions daily across enterprise-wide systems into a live data stream. Analysts could finally follow a transaction’s execution progress from beginning to end, along a timeline.
@@ -43,6 +46,9 @@ ABBYY also helped analysts find a specific type of transaction with higher delay
 
 Customer service analysts used ABBYY to find key points of high friction in customer processes.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Value
 
 * A live, end-to-end view of transactions from 2M daily events and 40 different systems on a timeline—without coding
@@ -55,18 +61,30 @@ Customer service analysts used ABBYY to find key points of high friction in cust
 
 ![FC_1](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Intelligent Automation for Financial Services
 
 [Learn more](https://tools.techidaily.com/abbyy/products/)
 
 ![overview image](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 #### PDF Version
 
 [Learn more](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/customer-story-process-mining-financial-services-process-intelligence-mines-six-million-savings-en.pdf)
 
 ![laptop mug](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ### Ready to speak with an expert?
 
 [Contact us](https://tools.techidaily.com/abbyy/products/)

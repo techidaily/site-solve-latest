@@ -1,7 +1,7 @@
 ---
 title: Discover What’s New From Apple – Highlights of the 2021 Worldwide Developers Conference (WWDC)
-date: 2024-08-21 18:51:19
-updated: 2024-08-22 12:18:24
+date: 2024-08-21T15:24:24.137Z
+updated: 2024-08-22T15:24:24.137Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d1baf3dfbbd327d9cbcf98353df44476f218395c1d3282d729e920baf2edbea8.jpg
@@ -197,3 +197,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620780&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->

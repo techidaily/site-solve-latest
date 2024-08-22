@@ -1,7 +1,7 @@
 ---
 title: "Marketing Leadership Update: Gabriard Lukianchuk Joins ABBYY C-Suite as Head of Marketing"
-date: 2024-08-19 10:10:15
-updated: 2024-08-22 10:41:33
+date: 2024-08-21T15:24:23.149Z
+updated: 2024-08-22T15:24:23.149Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b4edc9260dee73e74c6f70d4608ea90c51d96ccbc3b5f5a0008c722859666ad.jpg
@@ -43,10 +43,16 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 ### Pressekontakt:
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
+<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

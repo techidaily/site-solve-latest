@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Deloitte's eDiscovery Toolkit: ABBYY Contribution Successfully Detailed in Client Testimonial"
-date: 2024-08-19 11:24:26
-updated: 2024-08-22 10:35:52
+date: 2024-08-21T15:24:23.088Z
+updated: 2024-08-22T15:24:23.088Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/72f83f594e8347a65931f8cd6726d7752e9fa455ebb805c1df40ab92a9a832b1.jpg
@@ -19,16 +19,36 @@ Consulting | eDiscovery
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
+
+ It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
+
+  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
+
+  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
+<!-- affiliate ads end -->
 ## Deloitte extends the capabilities of their eDiscovery suite with the help of ABBYY Recognition Server
 
 Consulting | eDiscovery 
 
 ![](https://static1.abbyy.com/abbyycommedia/15274/cs-deloitte-556x303-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.mirillis.com/order/checkout.php?PRODS=4704640&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/547a5a56d43f6d40f9a6a2f76501d013/products/1_mirillis_action_boxshot_store_1x.jpg" border="0">
+	Home Use license is dedicated for personal, non-commercial use only. 
+	If Action! is used for commercial gain or to further any commercial purpose, 
+	a Commercial Use license is required. Multi-license (volume discount) is intended for single 
+ 
+	company, user or members of the same household. Action! - screen and game recorder</a>
+<!-- affiliate ads end -->
 #### Customer Overview
 
 ![Deloitte LLP](https://static4.abbyy.com/abbyycommedia/6036/logo-deloitte-new-162x30.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
 | Name                  | Deloitte LLP                                            |
 | --------------------- | ------------------------------------------------------- |
 | Industry              | Professional Services                                   |
@@ -75,10 +95,20 @@ With the new seamless solution, documents in the eDiscovery suite that are not s
 
 [![ABBYY Recognition Server has rebranded as ABBYY FineReader Server](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (now FineReader Server)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633309&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/3_premium-icon.png" border="0"> Take advantage of PREMIUM features for 12 months. 
+Create your texts / logos without any limitation. 
+No attribution required when downloading. 
+No advertising on the website. 
+ TextStudio.com  PREMIUM - Yearly Membership</a>
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![BPO](https://static2.abbyy.com/abbyycommedia/14364/14-bpo.jpg)](https://tools.techidaily.com/abbyy/products/) [BPO](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
+<!-- affiliate ads end -->
 [read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF Version](https://static2.abbyy.com/abbyycommedia/19839/cs-deloitte-360x162.jpg)](https://www.abbyy.com/customer-stories/deloitte-extends-the-capabilities-of-their-ediscovery-suite-with-the-help-of-abbyy-recognition-server/# "PDF version") [PDF version](https://static3.abbyy.com/abbyycommedia/7350/case-study-deloitte-consulting-en.pdf "PDF version") 
@@ -89,6 +119,9 @@ With the new seamless solution, documents in the eDiscovery suite that are not s
 
 Share  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940312&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

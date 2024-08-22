@@ -1,7 +1,7 @@
 ---
 title: Customized Site Interaction with Cookiebot Technology Integration
-date: 2024-08-19 10:40:29
-updated: 2024-08-22 10:43:45
+date: 2024-08-21T15:24:23.440Z
+updated: 2024-08-22T15:24:23.440Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b88c99aa3c51aa4517857e5b79893f53f6ca04daaffc99f79faac8fc9b5eb352.jpg
@@ -1120,6 +1120,10 @@ c. A data subject may also bring legal proceedings against the data exporter and
 
 d. The Parties agree to submit themselves to the jurisdiction of such courts. 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### APPENDIX
 
 **EXHIBIT I.A - LIST OF PARTIES**

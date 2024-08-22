@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhancing Digital Experience with Customized Tracking"
-date: 2024-08-19 16:50:55
-updated: 2024-08-22 11:48:24
+date: 2024-08-21T15:24:21.760Z
+updated: 2024-08-22T15:24:21.760Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e31d50b2743110f134bc23265ecc5f29f1da28d78cf8611e5eb4517444d9187a.jpg
@@ -29,12 +29,18 @@ Download this eBook to learn how Digital Intelligence enables banks to
 * Gain insight into the ways that people interact with documents
 * Discover patterns of suspicious behavior in processes
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read eBook](https://digital.abbyy.com/hubfs/content/ebook-banking-on-intelligence-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

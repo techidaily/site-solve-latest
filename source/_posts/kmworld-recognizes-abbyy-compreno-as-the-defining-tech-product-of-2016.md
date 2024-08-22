@@ -1,7 +1,7 @@
 ---
 title: KMWorld Recognizes ABBYY Compreno as the Defining Tech Product of 2016
-date: 2024-08-19 21:29:26
-updated: 2024-08-22 12:25:51
+date: 2024-08-21T15:24:22.534Z
+updated: 2024-08-22T15:24:22.534Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/37be59bd79492103146c553d037e355365677b2067dd8fea4392e3520b311142.jpg
@@ -63,3 +63,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

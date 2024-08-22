@@ -1,7 +1,7 @@
 ---
 title: "Enhancing Citizen Engagement and Trust: Strategies to Curtail Fraud in Public Sector Services"
-date: 2024-08-20 19:44:35
-updated: 2024-08-22 11:31:25
+date: 2024-08-21T15:24:22.145Z
+updated: 2024-08-22T15:24:22.145Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7aded2edc417202acc9394b304042727d6eb0d2ac27c609d7377dead2e886b5a.jpg
@@ -19,18 +19,27 @@ eBook
 
 Digital identity proofing and affirmation let you build a powerful fraud-prevention tool into your onboarding experience while also meeting users’ expectations for ease and efficiency. Find out how in our ebook **Onboarding: Balance customer expectations with fraud controls**, where you’ll also learn
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ### Download it now!
 
 * The difference between identity proofing and identity affirmation—and why you need both.
 * How these solutions help you optimize mobile experiences, which now account for 60% of website visits.
 * How using artificial intelligence for identity proofing enables faster, more cost-efficient onboarding processes with fewer mistakes.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851655&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Thank you for your interest in ABBYY.
 
 [Read eBook](https://digital.abbyy.com/hubfs/documents/content/ebook-use-case-government-onboarding-en.pdf "Read eBook") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

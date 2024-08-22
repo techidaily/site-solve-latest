@@ -1,7 +1,7 @@
 ---
 title: "Enhanced Site Performance with Automated Bots: The Power of CookieBot"
-date: 2024-08-20 17:11:22
-updated: 2024-08-22 11:12:32
+date: 2024-08-21T15:24:21.881Z
+updated: 2024-08-22T15:24:21.881Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad36698509cc3575ae5a17b1c.jpg
@@ -19,6 +19,9 @@ Whitepaper
 
 Durch die aktuellen Ereignisse ist der Druck auf Unternehmen, die digitale Transformation in ihre strategischen Pläne aufzunehmen, gestiegen. Mit dem Aufkommen von Low-Code- und No-Code-Entwicklungsplattformen entstand die neue Tätigkeit des Laienentwicklers. Technologien wie RPA waren für die ersten Phasen der digitalen Transformation vieler Unternehmen maßgeblich. Unternehmen entwickeln sich jetzt schnell und mit neuer Dringlichkeit weiter, um komplexere, hochwertigere Prozesse zu analysieren und zu automatisieren. Diese wichtigen Prozesse betreffen häufig auch Kunden und beinhalten unweigerlich unstrukturierte Inhalte, die intelligent verarbeitet werden müssen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
 Laden Sie dieses Whitepaper herunter und erfahren Sie mehr über:
@@ -30,12 +33,18 @@ Laden Sie dieses Whitepaper herunter und erfahren Sie mehr über:
 
 Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente Plattform für die intelligente Dokumentenverarbeitung diesen Bedarf lösen kann. Die Plattform fügt sich in das neue Paradigma der benutzerfreundlichen No-Code- / Low-Code-Implementierung ein, ist auf Laienentwickler abgestimmt und ermöglicht die Integration in RPA- und BPM-Plattformen. Sie erfahren auch, wie Sie wiederverwendbare Komponenten aus dem ABBYY Marketplace schnell in neuen Automatisierungsinitiativen einsetzen können, um innerhalb kurzer Zeit sichtbare Geschäftsergebnisse zu erzielen.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
 [Whitepaper lesen](https://digital.abbyy.com/hubfs/content/whitepaper-vantage-need-for-understanding-content-de.pdf "Whitepaper lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

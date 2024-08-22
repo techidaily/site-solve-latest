@@ -1,7 +1,7 @@
 ---
 title: ABBYY's Marketing Visionary - Bruce Orcutt, Executive Head of Brand & Communications
-date: 2024-08-21 18:29:44
-updated: 2024-08-22 11:53:45
+date: 2024-08-21T15:24:22.336Z
+updated: 2024-08-22T15:24:22.336Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5caaa3e52196c91037b09546.jpg
@@ -41,3 +41,8 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->

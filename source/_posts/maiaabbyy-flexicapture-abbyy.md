@@ -1,7 +1,7 @@
 ---
 title: "高精度文字認識への道:株式会社MAIAが開発したABBYY FlexiCapture向け人工知能ラーニングソリューション - ABBYY最新情報"
-date: 2024-08-21 17:36:41
-updated: 2024-08-22 12:29:13
+date: 2024-08-21T15:24:21.672Z
+updated: 2024-08-22T15:24:21.672Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5094501f2138eda47cf289c17fa771cf70f1a2ff2f06afb7d0554f6c0b97c22b.jpg
@@ -58,3 +58,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<iframe id="iframe_672" src="//a.impactradius-go.com/gen-ad-code/5597632/1959812/17834/" width="720" height="300" scrolling="no" frameborder="0" marginheight="0" marginwidth="0"></iframe>
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Launch of Version 2: Enhanced Features in the Latest ABBYY FlexiCapture Software Update"
-date: 2024-08-20 20:19:22
-updated: 2024-08-22 12:33:42
+date: 2024-08-21T15:24:24.190Z
+updated: 2024-08-22T15:24:24.190Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/f0f1add4f06bedd9b4441c0d9e38e221d87204ef26ea2cde0e10ae3ca9b9c9f6.jpg
@@ -86,3 +86,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

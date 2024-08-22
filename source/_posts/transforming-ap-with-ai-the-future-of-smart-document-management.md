@@ -1,7 +1,7 @@
 ---
 title: "Transforming AP with AI: The Future of Smart Document Management"
-date: 2024-08-21 23:10:56
-updated: 2024-08-22 10:18:37
+date: 2024-08-21T15:24:23.587Z
+updated: 2024-08-22T15:24:23.587Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/00c43aac4ac36494822026f46081d40ded4f30b2adeccfa477f16f86895593d2.jpg
@@ -67,6 +67,10 @@ From your perspective and from ABBYY's perspective, how can OCR, invoice scannin
 
 And for that, you need to have good insights into what your businesses are doing. And especially finance leaders need elevate the conversation in thinking about what's driving your team; what value is my team delivering? Is that entering data—or is that thinking about our processes delivering the accounting, giving insights to the business? I think it's the latter. 
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### The Changing Role of the Finance Leader
 
 ABBYY Chief Financial Officer James Ritter shares insights on how finance leaders can adapt to the changing business landscape with the help of intelligent automation.
@@ -107,6 +111,9 @@ A lot of great conversation today, Max. But before we go, is there anything else
 
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -115,14 +122,23 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+<!-- affiliate ads begin -->
+<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static1.abbyy.com/abbyycommedia/37736/idp-scheme-848x444-b.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [What Is Intelligent Document Processing, and How Does It Work?](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates

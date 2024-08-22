@@ -1,7 +1,7 @@
 ---
 title: Live Webinar on Seamlessly Merging FlexiCapture with Timeline – The ABBYY Experience
-date: 2024-08-19 14:47:28
-updated: 2024-08-22 10:47:28
+date: 2024-08-21T15:24:22.868Z
+updated: 2024-08-22T15:24:22.868Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fe80a3ac8c13e1838e754dfd0b220ea591dc82f5debc2a4e7c75f671463eb2ab.jpg
@@ -27,16 +27,28 @@ Senior Sales Engineer, **ABBYY**
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ### Andrew Pery
 
 Process Intelligence Lead, **ABBYY**
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ### Are you looking to save money and improve core processes while utilizing a complex mix of hundreds, sometimes thousands of individual systems?
 
 ![FlexiCapture for Invoices Video](https://static1.abbyy.com/abbyycommedia/32098/06-realize-incremental-value-360x232.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Most organizations like yours are not performing at their full potential. Others are achieving these successes with ABBYY today:
 
 * 20% increase in productivity at a Consumer Packed Goods company
@@ -54,13 +66,22 @@ What you’ll learn:
 * How to rapidly expose how every FlexiCapture process is executed, including the most ad-hoc, variable workflows
 * How to continuously monitor FlexiCapture process performance and generate a foundation for data-driven decisions with quantifiable process metrics
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+<!-- affiliate ads begin -->
+<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<!-- affiliate ads end -->
 ## Thank you for registering!
 
 [![01 Realize Incremental Value EN 643X363](https://static4.abbyy.com/abbyycommedia/32097/01-realize-incremental-value-643x363.jpg)](https://www.youtube.com/watch?v=jYdNOvFHA8M) 

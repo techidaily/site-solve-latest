@@ -1,7 +1,7 @@
 ---
 title: Optimized with Cookiebot Technology - Elevate User Experience and SEO Results Today!
-date: 2024-08-21 12:48:56
-updated: 2024-08-22 12:42:54
+date: 2024-08-21T15:24:22.005Z
+updated: 2024-08-22T15:24:22.005Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426c62a6f89484db17077fafde.jpg
@@ -19,18 +19,31 @@ English
 
 ![John Robbins 88x88](https://static5.abbyy.com/abbyycommedia/34666/johnrobbins-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<!-- affiliate ads end -->
 ### John Robbins
 
 Senior Director, Chief Compliance Officer, **Intercontinental Exchange**  
 
 ![John Fick 88x88](https://static2.abbyy.com/abbyycommedia/34665/johnfick-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### John Fick
 
 Vice President & Manager, Fraud and Investigations, **Columbia Bank**  
 
 ![Evan Gordon 88x88](https://static1.abbyy.com/abbyycommedia/34664/evangordon-88x88.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4615471&QTY=1&AFFILIATE=108875&CART=1"><img src="https://images.wondershare.com/affiliate-image/affiliate_banners_en/max_782x90.png" border="0"></a>
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
+The ultimate burning program for all your needs!</a>
+<!-- affiliate ads end -->
 ### Evan Gordon
 
 Chief Compliance Officer, **APG**  
@@ -56,6 +69,9 @@ At a recent virtual roundtable, panelists in the financial services space came t
 
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4726960&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/forexrobotronbox.gif" border="0">Forex Robotron Basic Package</a>
+<!-- affiliate ads end -->
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
@@ -65,10 +81,16 @@ All personal information collected via this method is under full scope of all pr
 
 [![12 New World New Risks EN 643X363](https://static1.abbyy.com/abbyycommedia/34646/12-new-world-new-risks-643x363.jpg)](https://www.youtube.com/watch?v=oEnENwSM6Og) 
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Please check your inbox, we have sent you a confirmation email.
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Please fill in this form to watch the webinar:

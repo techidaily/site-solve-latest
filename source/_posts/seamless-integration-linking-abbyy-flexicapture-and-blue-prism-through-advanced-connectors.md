@@ -1,7 +1,7 @@
 ---
 title: "Seamless Integration: Linking ABBYY FlexiCapture and Blue Prism Through Advanced Connectors"
-date: 2024-08-20 21:53:11
-updated: 2024-08-22 11:58:28
+date: 2024-08-21T15:24:22.586Z
+updated: 2024-08-22T15:24:22.586Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8a309f6aebab825a6cd0baff1d0b8550d45fadce34f31fb21e5a5f2109ae3299.jpg
@@ -15,6 +15,10 @@ thumbnail: https://thmb.techidaily.com/8a309f6aebab825a6cd0baff1d0b8550d45fadce3
 
 Enabling Blue Prism digital workers with the critical skills and understanding to turn unstructured content into structured, actionable information.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ## Connector Integrates ABBYY FlexiCapture with Blue Prism RPA
 
 ABBYY FlexiCapture Connector for Blue Prism is a VBO that provides the integration between the FlexiCapture enterprise platform and Blue Prism, automating the processing of unstructured content - documents, images, and text - turning into structured actionable data.

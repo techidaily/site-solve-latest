@@ -1,7 +1,7 @@
 ---
 title: "Mobile-Optimierung: McDows Erweitert Mit ABBYY OCR"
-date: 2024-08-21 15:13:52
-updated: 2024-08-22 11:50:10
+date: 2024-08-21T15:24:23.163Z
+updated: 2024-08-22T15:24:23.163Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b855ebe51b5189358ef7af65d06591503136d0471619c6e6540592a14f8eb424.jpg
@@ -57,6 +57,9 @@ Weitere Informationen zu den ABBYY FineReader Engines für Entwickler von Softwa
 
 Teilen  True ?  : "" 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.

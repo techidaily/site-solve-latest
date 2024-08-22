@@ -1,7 +1,7 @@
 ---
 title: Exploring the Power of Process Mining in Healthcare Industry - An Insightful Guide
-date: 2024-08-20 15:45:17
-updated: 2024-08-22 11:52:54
+date: 2024-08-21T15:24:22.500Z
+updated: 2024-08-22T15:24:22.500Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4116c8792bda40459f2d1e2a1bd6affbce6e7196ef5949783c79461a680de11c.jpg
@@ -33,6 +33,9 @@ Research for the application of [Process Mining in healthcare](https://tools.tec
 
 The Journal of Biomedical Informatics, a review analyzing the current adoption of Process Mining in healthcare by Eric Rojas et al., found that leading the way in the utilization of Process Mining for healthcare is in Europe, with 73% of current research being conducted here. According to a [recent survey into the State of Process Mining and RPA](https://tools.techidaily.com/abbyy/products/) in 2020, companies in France lead the way in terms of Process Mining, with 78% of respondents stating they are already using such tools.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### So how does Process Mining work?
 
 Process Mining is a technique that captures event logs from any number of systems of record and processes this data, allowing you to discover, monitor, visualize and ultimately improve your processes.
@@ -49,12 +52,18 @@ As discussed in Process Mining in Healthcare: Data Challenges when Answering Fre
 
 ![process improvement in healthcare](https://static1.abbyy.com/abbyycommedia/30414/healthcare-process.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 As a healthcare professional, you can use Process Mining to identify the best candidates for [process improvement in healthcare](https://tools.techidaily.com/abbyy/products/), which are often complex and time-sensitive and can take it one step further to improve the patient experience, avoid compliance risks and increase efficiency with Process Intelligence, a next-generation Process Mining solution.
 
 ABBYY’s Process Intelligence platform leverages advanced Process Mining technology, which includes process mapping and understanding, task mining and AI process forecasting capabilities, for process transformation. [**Click here**](https://tools.techidaily.com/abbyy/products/) to learn more.
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Process Mining](https://tools.techidaily.com/abbyy/products/) [Healthcare](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793233/19578" target="_top" id="1793233"><img src="//a.impactradius-go.com/display-ad/19578-1793233" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793233/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

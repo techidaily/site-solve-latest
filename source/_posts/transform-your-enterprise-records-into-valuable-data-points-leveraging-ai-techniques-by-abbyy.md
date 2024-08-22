@@ -1,7 +1,7 @@
 ---
 title: "Transform Your Enterprise Records Into Valuable Data Points: Leveraging AI Techniques by ABBYY"
-date: 2024-08-19 11:32:15
-updated: 2024-08-22 11:38:44
+date: 2024-08-21T15:24:23.225Z
+updated: 2024-08-22T15:24:23.225Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7b23375a4fe0d5624ebd7916eebd1b1cd35125f11689279abfa2fa088d107ba8.jpg
@@ -23,6 +23,10 @@ The rapid advancement in cognitive technologies is significantly impacting the w
 
 Macciola believes that the on-going onslaught of AI and its integration in business will not remove the need for enterprises to have knowledge workers: “With all AI solutions, people with more advanced training are needed who understand the company’s core values in addition to the technology processes.” This is because people have the characteristics that AI solutions need, such as empathy, creativity, judgement and critical thinking skills. Therefore, the skilled worker will always be vital to the success of the organization.”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
 ## What do customers want?
 
 The most appropriate mind-set for organizations, Macciola says, should be focusing on what customers are trying to do and adjusting to that. “Customers want a system to watch and learn what their knowledge workers are doing as part of their daily routines. They want a system that can then start recommending courses of action based on learned behavior. They also want the knowledge worker to be able to direct the system to automate from past recommendations.”
@@ -31,6 +35,9 @@ For Macciola, these insights point to machine learning and RPA. “RPA is likely
 
 “Consequently, once organizations have automated various tasks by adding a level of learned intelligence, they’re going to want to monitor and understand the impact those efforts are having on their organization. This will result in businesses and their workforces going through a material change over the next three to five years.”
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<!-- affiliate ads end -->
 ## Adjusting to Disruption
 
 Macciola believes organizations must adjust for AI to work successfully and this will demand a significant shift in skills. The priority will be having workers who are open to embracing new technology.
@@ -39,6 +46,9 @@ The general workplace will result in more tasks being addressed by a system of r
 
 “Another skills shift will be that the workers’ role will shrink from a span of control and expertise standpoint. As the software gets smarter, its dependency on the workforce shrinks and the knowledge workers will become more narrowly focused from a role and responsibility standpoint.”
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Looking ahead
 
 Macciola predicts industry will see significant change in three areas largely driven by the convergence of Robotic Process Automation and AI. RPA software is a powerful tool to perform manual, time-consuming, rules-based office tasks more efficiently by reducing cycle time and at lower costs than other automation solutions.
@@ -53,6 +63,9 @@ Macciola predicts industry will see significant change in three areas largely dr
 
 [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Robotic Process Automation (RPA)](https://www.abbyy.com/blog/robotic-process-automation-rpa/ "Robotic Process Automation (RPA)") [Enterprise](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://checkout.devart.com/order/checkout.php?PRODS=5023555&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/45b430710ad04765a6afd58d9d9fafca/products/dotConnect_O.png" border="0">dotConnect for Oracle is an ADO.NET data provider for Oracle with Entity Framework Support.</a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

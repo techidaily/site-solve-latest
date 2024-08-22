@@ -1,7 +1,7 @@
 ---
 title: Enhanced Performance Using Advanced Cookie Technology
-date: 2024-08-21 11:56:42
-updated: 2024-08-22 12:47:34
+date: 2024-08-21T15:24:23.077Z
+updated: 2024-08-22T15:24:23.077Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/deaea135ad5d9b523c81b174542d97bf19684476eed26249d5d0957bb4c9f421.jpg
@@ -59,6 +59,9 @@ ABBYYはインテリジェント・オートメーションを推進するリー
 
 ABBYYは、登録商標または商標の場合があります。ABBYYグループ企業のロゴ、企業名（またはその一部）、製品名の一部である場合もあり、各所有者の同意なしに使用することは禁じられています。
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
+<!-- affiliate ads end -->
 ### 報道関係者お問い合わせ先
 
 #### 株式会社井之上パブリックリレーションズ 

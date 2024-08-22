@@ -1,7 +1,7 @@
 ---
 title: "ABBYYによる最新「プロセスマイニング」分析: 2021年での業界リード - NelsonHall調査報告"
-date: 2024-08-19 21:16:40
-updated: 2024-08-22 11:46:51
+date: 2024-08-21T15:24:22.625Z
+updated: 2024-08-22T15:24:22.625Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b119e381603d6bed9ecec925cda81333c3ae9fa13dd7e2286051886237daee19.jpg
@@ -71,3 +71,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

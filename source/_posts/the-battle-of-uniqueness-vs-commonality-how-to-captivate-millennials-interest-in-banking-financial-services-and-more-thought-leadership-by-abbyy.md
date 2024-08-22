@@ -1,7 +1,7 @@
 ---
 title: "The Battle of Uniqueness Vs. Commonality: How to Captivate Millennials' Interest in Banking, Financial Services & More | Thought Leadership by ABBYY"
-date: 2024-08-20 22:43:55
-updated: 2024-08-22 12:53:16
+date: 2024-08-21T15:24:23.203Z
+updated: 2024-08-22T15:24:23.203Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2f1095b1f1474aef4ef5c21f.png
@@ -47,6 +47,9 @@ Sadly, PwC notes that only 7% of US-based CEOs consider themselves [prepared for
 
 Banks and financial services institutions are under increasing pressure to contain costs and improve service quality, but that is difficult to do when the existing infrastructure is dependent on outdated, paper-based workflows. Intelligent data capture, document classification, and unstructured content extraction solutions on mobile, on-site, and in the cloud, enable millennials in real-time.
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### Author’s note:
 
 _I am currently 28 and my parents are 55\. This places me in the millennial bracket (born 1980-1999) and my parents in the Baby Boomers generation (born 1946-1964), both the two largest segments of the US population as seen in this graph from [CNN Money](http://money.cnn.com/interactive/economy/diversity-millennials-boomers/)._
@@ -55,12 +58,23 @@ Derek Gerber
 
 ![Derek Gerber](https://static1.abbyy.com/abbyycommedia/25239/derek-gerber.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<!-- affiliate ads end -->
 [@gerbzman38](https://twitter.com/gerbzman38)
 
 [LinkedIn Profile](https://www.linkedin.com/in/derekgerber/)
 
 [Financial Services](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
+<span class="text-ad-content">
+	#1 Rated Parental Control Software.<br/>
+	Monitor & Control all PC Activity!<br/>
+		<cite style="color:green">sentrypc.com/parental-controls/</cite>
+	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

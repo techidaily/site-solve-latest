@@ -1,7 +1,7 @@
 ---
 title: "Financial Innovation at Costain: Leveraging ABBYY Content Intelligence for Departmental Transformation"
-date: 2024-08-20 13:15:27
-updated: 2024-08-22 10:51:37
+date: 2024-08-21T15:24:22.165Z
+updated: 2024-08-22T15:24:22.165Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318bde80345b630595fb88d747.jpg
@@ -95,6 +95,9 @@ Integration of ABBYY Intelligent Document Processing platform
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Deutsche Post DHL Boosts Operational Efficiency by 70%% Through RPA and ABBYY IDP Implementation
-date: 2024-08-21 18:41:11
-updated: 2024-08-22 11:39:11
+date: 2024-08-21T15:24:23.456Z
+updated: 2024-08-22T15:24:23.456Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e1e3cd6b008cdab8aeee33309c0a15674cf83671f125b94d0f79189ce7d24b4f.jpg
@@ -35,6 +35,9 @@ Deutsche Post DHL cherchait une solution pour :
 * Gérer la complexité des différents formats
 * S’intégrer à la RPA (automatisation robotisée des processus) de l’organisation
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Solution
 
 Le traitement intelligent des documents (IDP) ABBYY permet à la RPA de comprendre et traiter le contenu de documents semi-structurés et non structurés. Les technologies de reconnaissance optique de caractères (OCR) et d’IDP reconnaissent, classent et extraient, automatiquement et de façon juste, de grandes quantités de données essentielles qui deviendront exploitables pour la RPA.
@@ -43,6 +46,9 @@ Automatiser le traitement des avis de paiement avec l’IDP ABBYY a permis de ga
 
 Deutsche Post a été en mesure d’automatiser une partie du processus qui nécessitait encore un travail manuel significatif et de libérer ainsi le personnel pour des interactions générant plus de valeur.
 
+<!-- affiliate ads begin -->
+<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Value
 
 * Des frais de transaction réduits grâce à des processus globaux standardisés
@@ -55,18 +61,32 @@ Deutsche Post a été en mesure d’automatiser une partie du processus qui néc
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/flexicapture/fc_1.jpg?h=392&iar=0&w=696)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087484/7443" target="_top" id="2087484"><img src="//a.impactradius-go.com/display-ad/7443-2087484" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087484/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### ABBYY Solutions for Accounts Payable Automation
 
 [En savoir plus](https://tools.techidaily.com/abbyy/products/)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/ap-automation/overview-image.jpg?h=800&iar=0&w=1392)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
+</a>
+<!-- affiliate ads end -->
 #### PDF Version
 
 [Lire le document](https://content.abbyy.com/-/media/Project/Abbyy/Abbyy/Insights/Customer-Stories/PDFs/customer-story-intelligent-document-processing-transportation-deutsche-post-dhl-group-fr.pdf)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/news-images/laptop-mug.jpg?h=836&iar=0&w=1486)
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
+</a>
+<!-- affiliate ads end -->
 ### En savoir plus sur ABBYY 
 
 [Contactez-nous](https://tools.techidaily.com/abbyy/products/)

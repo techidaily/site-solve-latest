@@ -1,7 +1,7 @@
 ---
 title: "Meet the New Leader of ABBYY's Marketing Strategy: Scott Opitz Steps Up as Chief Marketing Officer"
-date: 2024-08-19 16:38:49
-updated: 2024-08-22 11:59:38
+date: 2024-08-21T15:24:23.519Z
+updated: 2024-08-22T15:24:23.519Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4dbf33f37ff64fa1cd0b3b86eb483d2b61e4dcfaa2f3492f28ea818842097e14.jpg
@@ -62,3 +62,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: ABBEYY Survey Finds Over 40 Working Days a Year Used by UK Staff in Non-Automatable Jobs – A Call to Embrace Robotic Efficiency
-date: 2024-08-20 22:28:30
-updated: 2024-08-22 11:58:45
+date: 2024-08-21T15:24:22.620Z
+updated: 2024-08-22T15:24:22.620Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a80aac0357f3c4788226453d272b3a23130ff4b40d591496be1b3a2b61ca7796.jpg
@@ -85,3 +85,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->

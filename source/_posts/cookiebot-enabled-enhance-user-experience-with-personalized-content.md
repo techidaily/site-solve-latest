@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance User Experience with Personalized Content"
-date: 2024-08-20 20:27:34
-updated: 2024-08-22 10:18:21
+date: 2024-08-21T15:24:22.741Z
+updated: 2024-08-22T15:24:22.741Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1276dd3e47443d01d60ef92ceafe65883b1431cf0aceea8f20ef4307f66fd914.jpg
@@ -19,6 +19,9 @@ Whitepaper
 
 Erfahren Sie, wie Sie Geschäfts­prozess­verbesserungen erzielen, indem Sie Ihre Lösungen auf dem Feld der Robotic Process Automation (RPA) um Process Intelligence ergänzen.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
 In diesem Whitepaper erfahren Sie Folgendes:
@@ -31,14 +34,25 @@ Steigern Sie Ihren Process IQ mit umsetzbaren Erkenntnissen
 
 ABBYY Timeline hilft Unternehmen, den derzeitigen Zustand ihrer Prozesse zu verstehen, um ein vollständigeres Bild zu erhalten und die Ausführung von End-to-End-Prozessen im zeitlichen Kontext und nicht als Momentaufnahme anzuzeigen.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-office-pdf-editor-1x.890dbda.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 ### Lesen Sie unser Whitepaper, um mehr über Anwendungsfälle und die spezifischen und konkreten Vorteile der Process Intelligence-Technologie zu erfahren, die sich dann bieten, wenn sie zusammen mit RPA-Anwendungen eingesetzt wird.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
 [Whitepaper lesen](https://digital.abbyy.com/hubfs/content/whitepaper-accelerating-rpa-with-process-intelligence-de.pdf "Whitepaper lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

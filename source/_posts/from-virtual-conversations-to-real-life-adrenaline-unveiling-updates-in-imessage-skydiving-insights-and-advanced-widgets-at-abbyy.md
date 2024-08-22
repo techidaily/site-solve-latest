@@ -1,7 +1,7 @@
 ---
 title: "From Virtual Conversations to Real-Life Adrenaline: Unveiling Updates in iMessage, Skydiving Insights, and Advanced Widgets at ABBYY"
-date: 2024-08-19 17:24:55
-updated: 2024-08-22 10:28:13
+date: 2024-08-21T15:24:23.843Z
+updated: 2024-08-22T15:24:23.843Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04a734a9937eba2d7e4ad06c3d50be8d29a9cd1edbd98c5f96a14775cba2210b.jpg
@@ -40,6 +40,9 @@ Naturally, there are widgets for Android apps as well, and in certain respects, 
 2. Tap the **Widgets** icon at the bottom of the screen.![Android set Widgets Home Screen](https://static1.abbyy.com/abbyycommedia/26251/screenshot_20180430-190926_samsung-experience-home-e1525076867219.jpg)
 3. Leaf through the screens with the available widgets until you see the clock widget. Tap and hold the widget until you see the small images of your home screens.![search for available widgets android](https://static1.abbyy.com/abbyycommedia/26252/screenshot_20180430-190933_samsung-experience-home-e1525076909519.jpg)
 4. Drag and drop the clock widget onto a home screen.
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Depending on the version of your OS, the selected widget will be placed into the available free space or you will need to long-tap it and drag it to the desired location.
 
@@ -69,10 +72,16 @@ Now if you want to send a scan using iMessage:
 1. Go to the conversation and tap the FineScanner icon.
 2. Select the document in the list and specify the format to be used. For scans, select PDF and JPEG. For recognized documents, select PDF and, for example, DOCX or TXT. ![ABBYY Send Documents iMessage finescanner](https://static1.abbyy.com/abbyycommedia/26253/fs-iphone6p-en2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ## **App of the Week: Trello** 
 
 [Trello](https://trello.com/) is one of the most widely used online collaboration tools. It helps you organize and manage your project using the popular Japanese kanban boards.![App Trello manage tasks control projects](https://static1.abbyy.com/abbyycommedia/26254/screen-shot-2012-03-12-at-90700-am-e1525076970704.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 In [Trello](https://trello.com/), you manage your tasks by arranging cards of various classes on a board. Typically, tasks are classified into:
 
 * Planned,
@@ -83,12 +92,20 @@ In [Trello](https://trello.com/), you manage your tasks by arranging cards of va
 
 Available on [iOS](https://itunes.apple.com/ru/app/trello/id461504587) and [Android](https://play.google.com/store/apps/details?id=com.trello&hl=ru).
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Olga Pavlinova, Head of Event Group_ 
 
 ![abbyy advice skydiving jump air](https://static1.abbyy.com/abbyycommedia/26255/15442197_1162392030505919_6672111307287218530_n.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
+🎬 Nero Video:
+The powerful video editing program for your Windows PC</a>
+<!-- affiliate ads end -->
 Almost every self-help and self-improvement book will include this piece of advice: “Always try something new.” Today, I have some tips for those who are after new experiences and are looking into where to find them.
 
 If you are seeking new thrills, why not take to the skies? The skydiving season is just around the corner, and that means that you can finally take the plunge and do a parachute jump from 4,000 meters. How’s that for something new?
@@ -115,6 +132,9 @@ P.S. You can find our previous newsletter [here](https://tools.techidaily.com/ab
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

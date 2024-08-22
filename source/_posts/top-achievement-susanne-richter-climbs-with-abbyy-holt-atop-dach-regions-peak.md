@@ -1,7 +1,7 @@
 ---
 title: "Top Achievement: Susanne Richter-Climbs with ABBYY Holt Atop DACH Region's Peak"
-date: 2024-08-20 16:32:52
-updated: 2024-08-22 12:18:42
+date: 2024-08-21T15:24:22.294Z
+updated: 2024-08-22T15:24:22.294Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/91120e952f9d1d6546a20efeacf0c17a6bf03fb188a99199abb6d7256d2ab1ac.jpg
@@ -73,3 +73,7 @@ Vernetzen Sie sich mit uns
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<!-- affiliate ads end -->

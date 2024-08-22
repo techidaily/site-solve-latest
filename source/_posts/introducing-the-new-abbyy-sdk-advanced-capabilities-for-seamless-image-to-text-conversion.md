@@ -1,7 +1,7 @@
 ---
 title: "Introducing the New ABBYY SDK: Advanced Capabilities for Seamless Image-to-Text Conversion"
-date: 2024-08-20 19:25:39
-updated: 2024-08-22 12:10:16
+date: 2024-08-21T15:24:22.528Z
+updated: 2024-08-22T15:24:22.528Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a34b2694ff1529f9b0220b04e.jpg
@@ -71,3 +71,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<!-- affiliate ads end -->

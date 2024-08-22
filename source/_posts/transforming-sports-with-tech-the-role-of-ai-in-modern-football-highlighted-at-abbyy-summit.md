@@ -1,7 +1,7 @@
 ---
 title: "Transforming Sports with Tech: The Role of AI in Modern Football - Highlighted at ABBYY Summit"
-date: 2024-08-19 10:19:13
-updated: 2024-08-22 11:38:48
+date: 2024-08-21T15:24:23.965Z
+updated: 2024-08-22T15:24:23.965Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d1baf3dfbbd327d9cbcf98353df44476f218395c1d3282d729e920baf2edbea8.jpg
@@ -108,3 +108,7 @@ Connect with us
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
