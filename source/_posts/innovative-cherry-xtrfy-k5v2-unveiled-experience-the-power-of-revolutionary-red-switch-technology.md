@@ -1,7 +1,7 @@
 ---
 title: "Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology"
-date: 2024-08-28 14:39:37
-updated: 2024-08-29 11:33:44
+date: 2024-08-30T11:18:31.096Z
+updated: 2024-08-31T11:18:31.096Z
 tags:
   - product-reviews
 categories:
@@ -113,10 +113,16 @@ Sergio Rodriguez / How-To Geek
 
  The keyboard also features pre-lubed, PCB-mounted stabilizers to ensure that the ABS keycaps respond reliably to your key presses, no matter how frantically you hit them. Beyond that, the XTRFY K5V2's keys are hot-swappable, meaning you can change them out for others. Also, as a sucker for lights, I have to point out that the per-key RGB lighting on this board is stellar.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
+<!-- affiliate ads end -->
 ##  Sweet New Cherry Key Switches
 
 ![keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  The XTRFY K5V2's biggest draw has to be its new key switches. As I mentioned, Cherry is known for its high-quality key switches. The XTRFY K5V2 debuts Cherry's new MX2A Red switches, which have a different mechanism than the venerable (and much-loved) MX Red switches.
@@ -129,6 +135,9 @@ Sergio Rodriguez / How-To Geek
 
 ![Angled view of the backlit Cherry K5V2 Keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/angled-view-of-the-backlit-cherry-k5v2-keyboard-1jpg_53543595886_o-2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  Interestingly, Cherry doesn't offer software for its new keyboard. Instead, it packed a boatload of customization features into the board itself. Nearly every key has icons or text on the user-facing side. Hold the FN key, and they're active. Media controls? Check. RGB lighting options? Check. Macros? You betcha. It even has mouse control options.
@@ -139,6 +148,9 @@ Sergio Rodriguez / How-To Geek
 
  The keyboard also has a function key that lets you swap between USB 2.0 and 3.0\. If you plug the keyboard into a USB 3.0 port, it can improve the RGB lighting.
 
+<!-- affiliate ads begin -->
+<a href="https://lightailing.sjv.io/c/5597632/1638364/17190" target="_top" id="1638364"><img src="//a.impactradius-go.com/display-ad/17190-1638364" border="0" alt="" width="1280" height="720"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1638364/17190" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ##  Should You Buy the Cherry XTRFY K5V2?
 
 ![The Cherry K5V2 keyboard with its box and accessories](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/the-cherry-k5v2-keyboard-with-its-box-and-accessories-2jpg_53542721052_o-2.jpg) 
@@ -149,8 +161,14 @@ Sergio Rodriguez / How-To Geek
 
 ![Cherry XTRFY K5V2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/amazoncherryxtrfyk5v2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<!-- affiliate ads end -->
 #####  Cherry XTRFY K5V2
 
 8/ 10 
@@ -229,3 +247,41 @@ Expand
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-maximizing-mobile-video-quality-your-phone-as-a-webcam/"><u>[Updated] 2024 Approved  Maximizing Mobile Video Quality  Your Phone as a Webcam</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-iphone-hdr-mastery-a-complete-workshop/"><u>[Updated] IPhone HDR Mastery  A Complete Workshop</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1-nakano-city-tokyo-enhancing-government-efficiency-with-abbyy-intelligent-automation-save-time-and-money-up-to-30/"><u>1. Nakano City, Tokyo: Enhancing Government Efficiency with ABBYY Intelligent Automation - Save Time & Money up to 30%%</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-oneplus-nord-3-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your OnePlus Nord 3 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On Vivo Y27 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724313098118-nec/"><u>企業の作業プロセス改革を支えるNECソリューションイノベータ</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/boost-your-digital-marketing-with-cookiebot-technology/"><u>Boost Your Digital Marketing with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/boosting-your-websites-analytics-the-role-of-cookiebot-solutions/"><u>Boosting Your Website's Analytics: The Role of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/carlsberg-fuhrt-abbyy-fur-beschleunigung-von-premium-bierproduktion-ein/"><u>Carlsberg Führt ABBYY Für Beschleunigung Von Premium-Bierproduktion Ein</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comprendre-lelectronique-facturation-un-guide-essentiel-pour-les-comptes-fournisseurs-software-de-labbyy/"><u>Comprendre L'électronique Facturation: Un Guide Essentiel Pour Les Comptes Fournisseurs - Software De L'ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-website-optimization-enhancing-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-enhance-your-site-with-smart-analytics-and-personalization/"><u>Cookiebot-Enhanced: Enhance Your Site with Smart Analytics & Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/customized-user-experience-enabled-by-cookiebot-technology/"><u>Customized User Experience Enabled by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/decouvrez-les-nouvelles-fonctionnalites-dabbyy-flexicapture-avec-un-systeme-de-suivi-et-de-reporting-exceptionnellement-efficace/"><u>Découvrez Les Nouvelles Fonctionnalités D'ABBYY FlexiCapture Avec Un Système De Suivi Et De Reporting Exceptionnellement Efficace</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/discovering-social-medias-top-5-innovations-in-fb-for-2024/"><u>Discovering Social Media’s Top 5 Innovations in FB for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/eliminating-readwrite-errors-in-windows-systems/"><u>Eliminating Read/Write Errors in Windows Systems</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-logistics-management-with-our-step-by-step-shipping-procedure-guide-get-it-here-today/"><u>Enhance Logistics Management with Our Step-by-Step Shipping Procedure Guide – Get It Here Today!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-your-digital-strategy-through-cookiebot-driven-insights/"><u>Enhance Your Digital Strategy Through Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-web-presence-through-advanced-cookiebot-technology/"><u>Enhanced Web Presence Through Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-website-functionality-using-advanced-cookiebot-solutions/"><u>Enhanced Website Functionality Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-citizen-engagement-and-trust-strategies-to-curtail-fraud-in-public-sector-services/"><u>Enhancing Citizen Engagement and Trust: Strategies to Curtail Fraud in Public Sector Services</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-client-experience-through-abbyys-advanced-process-insights-by-emerson/"><u>Enhancing Client Experience Through ABBYY's Advanced Process Insights by Emerson</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-retrieve-deleted-calendar-events-iphone-6-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Retrieve Deleted Calendar Events iPhone 6? | Stellar</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/leading-the-charge-in-ai-driven-document-management-abbyy-takes-first-place-2021-edition/"><u>Leading the Charge in AI-Driven Document Management: Abbyy Takes First Place, 2021 Edition</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/newly-appointed-ciso-clayton-c-peddy-joins-the-leadership-team-at-abbyy/"><u>Newly-Appointed CISO: Clayton C. Peddy Joins the Leadership Team at ABBYY</u></a></li>
+<li><a href="https://printer-issues.techidaily.com/printing-anomaly-linked-to-unknown-pc/"><u>Printing Anomaly Linked to Unknown PC</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionize-your-online-marketing-efficient-campaigns-powered-by-cookiebot-innovations/"><u>Revolutionize Your Online Marketing: Efficient Campaigns Powered by Cookiebot Innovations</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionizing-document-management-in-microsoft-sharepoint-with-cutting-edge-abbyy-ocr-technology/"><u>Revolutionizing Document Management in Microsoft SharePoint with Cutting-Edge ABBYY OCR Technology</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/rhythmic-reckonings-top-disruptors-for-mobile-devices-for-2024/"><u>Rhythmic Reckonings  Top Disruptors for Mobile Devices for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-integration-linking-abbyy-flexicapture-and-blue-prism-through-advanced-connectors/"><u>Seamless Integration: Linking ABBYY FlexiCapture and Blue Prism Through Advanced Connectors</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/seamless-video-capture-and-save-with-top-apps-list-for-2024/"><u>Seamless Video Capture & Save with Top Apps List for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transform-your-accounting-workflow-with-smart-ai-financial-document-processing-solutions/"><u>Transform Your Accounting Workflow with Smart AI Financial Document Processing Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlocking-supply-chain-obstacles-duplicating-employee-expertise/"><u>Unlocking Supply Chain Obstacles: Duplicating Employee Expertise</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlocking-website-potential-with-cookiebots-advanced-tracking-technology-for-seo-success/"><u>Unlocking Website Potential with Cookiebot's Advanced Tracking Technology for SEO Success</u></a></li>
+</ul></div>

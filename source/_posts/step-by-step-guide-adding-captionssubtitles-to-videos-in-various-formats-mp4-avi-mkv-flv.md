@@ -1,7 +1,7 @@
 ---
 title: "Step-by-Step Guide: Adding Captions/Subtitles to Videos in Various Formats (MP4, AVI, MKV, FLV)"
-date: 2024-08-24 13:47:31
-updated: 2024-08-27 10:22:26
+date: 2024-08-30T11:19:47.715Z
+updated: 2024-08-31T11:19:47.715Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/010139d6077f90333f3025af8c182332c9900266fd1f6067fe122889069013d2.jpg
@@ -84,6 +84,18 @@ To embed subtitles to a video movie file, click "video" or directly drag and dro
 
 ![add video subtitles](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/add-sub-to-video.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Needless to say, [**VLC**](http://www.videolan.org/vlc/index.html) is a oldie, also a goodie. If VLC is you default video player, [embed subtitles to movie](https://tools.techidaily.com/macxdvd/products/) video file would be simple. How to add subtitles to a video in VLC? Before you add subtitles to videos, make sure that you've got subtitle files on your computer, if not, download the subtitle first from free subtitle download sites, like opensubtitles.org, moviesubtitles.org, divxsubtitles.net, etc.
 
 Next, make sure that the downloaded subtitle has exact the same name as the movie file. For example, if the movie file is called "MyMovie.mp4", the subtitle file should be saved as "MyMovie" plus the extension .srt, .ssa, or .aas. Then, put the subtitle file and movie file in the same location on your computer, and then VLC should be able to play the video and subtitles automatically.
@@ -100,6 +112,9 @@ The online video subtitle adder and editor support inserting subtitles and capti
 
 ![embed subtitles to movie online](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/add-sub-to-video-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4\. Auto-generating subtitles for your videos
 
 In case you don't have an SRT or VTT file with the subtitles you want to add, you can auto subtitle your footage using a [subtitle generator](https://www.happyscribe.com/subtitle-generator.htm). You can automatically generate subtitles for your videos and then render them into the movie permanently (hardcode subtitles), or download them as a separate subtitle file (SRT, VTT, TXT, etc.) It's that easy to add subtitles to your movies!
@@ -108,6 +123,9 @@ ABOUT THE AUTHOR
 
 ![author- candice](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/candice.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://boody-eco-wear.pxf.io/c/5597632/1572622/13846" target="_top" id="1572622"><img src="//a.impactradius-go.com/display-ad/13846-1572622" border="0" alt="" width="1000" height="1298"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1572622/13846" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [Candice Liu ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/share-in1.jpg)](https://www.linkedin.com/in/candice-liu-444483a3/) 
 
 Candice's particularly skilled in writing and sharing video-related contents. Her guides cover from deep-seated video/audio parameters, to media entertainment on different platforms. She also enjoys shooting and processing videos by herself for a more reliable basis of informative info with her articles, which are never at the expense of eliminating an entertaining read.
@@ -122,10 +140,16 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 [\[Where and How\] Movie Subtitles SRT Free Download](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<!-- affiliate ads end -->
 [How to Add Subtitles to iMovie Video Project](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic4.jpg)
@@ -134,24 +158,39 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087394/7443" target="_top" id="2087394"><img src="//a.impactradius-go.com/display-ad/7443-2087394" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [How to Add Subtitles to YouTube Videos](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [How to Hardcode SRT Subtitles to MKV Video Movie Files](https://tools.techidaily.com/macxdvd/products/) 
 
 
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<!-- affiliate ads end -->
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/1997817/17059" target="_top" id="1997817"><img src="//a.impactradius-go.com/display-ad/17059-1997817" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997817/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Hot Products
 
 * [MacX DVD Ripper Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<!-- affiliate ads end -->
 ### Tips and Tricks
 
 * [DVD Topics >>](https://tools.techidaily.com/macxdvd/products/)
@@ -191,3 +230,57 @@ Apple, the Apple logo, Mac, iPhone, iPad, iPod and iTunes are trademarks of Appl
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-taking-charge-stop-instagram-suggested-posts/"><u>[New] 2024 Approved  Taking Charge  Stop Instagram Suggested Posts</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-content-creators-dilemma-which-site-reigns-vimeo-youtube-for-2024/"><u>[New] Content Creators' Dilemma  Which Site Reigns - Vimeo, YouTube for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-global-viewer-count-triumphs-play-button-honors/"><u>[New] Global Viewer Count Triumphs  Play Button Honors</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-whats-shaking-the-breaking-down-of-top-8-social-videos-for-2024/"><u>[New] What's Shaking? The Breaking Down of Top 8 Social Videos for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-master-classroom-optimal-video-edits-on-vimeo/"><u>[Updated] In 2024, Master Classroom  Optimal Video Edits on Vimeo</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-webcamsavvy-essentialrecordinghacks/"><u>[Updated] WebCamSavvy  EssentialRecordingHacks</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/2024-approved-making-triggered-memes-with-filmora-video-editor/"><u>2024 Approved Making Triggered Memes with Filmora Video Editor</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/address-the-empty-spaces-for-windows-11-image-tiles/"><u>Address the Empty Spaces for Windows 11 Image Tiles</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/boosting-taskbar-performance-on-win11/"><u>Boosting Taskbar Performance on Win11</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comprendre-lelectronique-facturation-un-guide-essentiel-pour-les-comptes-fournisseurs-software-de-labbyy/"><u>Comprendre L'électronique Facturation: Un Guide Essentiel Pour Les Comptes Fournisseurs - Software De L'ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-website-optimization-enhancing-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-enhance-your-site-with-smart-analytics-and-personalization/"><u>Cookiebot-Enhanced: Enhance Your Site with Smart Analytics & Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/customized-user-experience-enabled-by-cookiebot-technology/"><u>Customized User Experience Enabled by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/decouvrez-les-nouvelles-fonctionnalites-dabbyy-flexicapture-avec-un-systeme-de-suivi-et-de-reporting-exceptionnellement-efficace/"><u>Découvrez Les Nouvelles Fonctionnalités D'ABBYY FlexiCapture Avec Un Système De Suivi Et De Reporting Exceptionnellement Efficace</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-logistics-management-with-our-step-by-step-shipping-procedure-guide-get-it-here-today/"><u>Enhance Logistics Management with Our Step-by-Step Shipping Procedure Guide – Get It Here Today!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-your-digital-strategy-through-cookiebot-driven-insights/"><u>Enhance Your Digital Strategy Through Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-web-presence-through-advanced-cookiebot-technology/"><u>Enhanced Web Presence Through Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-website-functionality-using-advanced-cookiebot-solutions/"><u>Enhanced Website Functionality Using Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-citizen-engagement-and-trust-strategies-to-curtail-fraud-in-public-sector-services/"><u>Enhancing Citizen Engagement and Trust: Strategies to Curtail Fraud in Public Sector Services</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-client-experience-through-abbyys-advanced-process-insights-by-emerson/"><u>Enhancing Client Experience Through ABBYY's Advanced Process Insights by Emerson</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/erweiterte-prozessautomatisierung-mit-abbyy-fortschrittliche-outsourcing-strategien-prasentiert-bei-den-shared-services-and-outsourcing-tagesspielen/"><u>Erweiterte Prozessautomatisierung Mit ABBYY - Fortschrittliche Outsourcing Strategien Präsentiert Bei Den Shared Services & Outsourcing Tagesspielen</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/financial-innovation-at-costain-leveraging-abbyy-content-intelligence-for-departmental-transformation/"><u>Financial Innovation at Costain: Leveraging ABBYY Content Intelligence for Departmental Transformation</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/gerez-vos-factures-en-un-clin-doeil-grace-a-la-solution-abbyy-le-partenaire-ideal-pour-les-associations-de-logement-a-grande-echelle/"><u>Gérez Vos Factures en Un Clin D'œil Grâce À La Solution ABBYY : Le Partenaire Idéal Pour Les Associations De Logement À Grande Échelle</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-visitor-insights-with-our-cookiebot-driven-technology-solutions/"><u>Harness the Power of Visitor Insights with Our Cookiebot-Driven Technology Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-the-power-of-cookiebot-technology-for-advanced-website-tracking-and-seo-insights/"><u>Harnessing the Power of Cookiebot Technology for Advanced Website Tracking and SEO Insights</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-the-power-of-cookiebot-boost-your-sites-seo-and-engagement-metrics-efficiently/"><u>Harnessing the Power of Cookiebot: Boost Your Site's SEO & Engagement Metrics Efficiently</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-samsung-galaxy-a34-5g-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Samsung Galaxy A34 5G Through Google Earth?</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-infinix-smart-7-hd-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Infinix Smart 7 HD to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-to-use-pokemon-go-joystick-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>How to use Pokemon Go Joystick on Oppo Reno 10 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-facebooks-visual-storytelling-what-angle-matters-most/"><u>In 2024, Facebook's Visual Storytelling  What Angle Matters Most?</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-send-and-fake-live-location-on-facebook-messenger-of-your-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Send and Fake Live Location on Facebook Messenger Of your Oppo Reno 8T 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-how-to-watch-nba-in-real-time-15-effective-strategies/"><u>In 2024, How to Watch NBA in Real Time  15 Effective Strategies</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/innovation-en-ia-comment-la-plateforme-flexicapture-dabbyy-utilise-le-machine-learning-pour-loptimisation/"><u>Innovation en IA: Comment La Plateforme FlexiCapture D'ABBYY Utilise Le Machine Learning Pour L'optimisation</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/lancer-un-projet-rpa-avec-succes-chez-abbyy-strategie-et-methodes-manuel-pdf/"><u>Lancer Un Projet RPA Avec Succès Chez ABBYY : Stratégie Et Méthodes - Manuel PDF</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/master-the-fix-effective-methods-to-stop-arcadegeddon-from-crashing-on-your-computer/"><u>Master the Fix: Effective Methods to Stop Arcadegeddon From Crashing on Your Computer</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/maximizing-business-outcomes-with-process-intelligence-a-forrester-perspective/"><u>Maximizing Business Outcomes with Process Intelligence - A Forrester Perspective</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/open-your-own-chatgpt-without-restrictions-the-ultimate-walkthrough-for-windows-users/"><u>Open Your Own ChatGPT Without Restrictions - The Ultimate Walkthrough for Windows Users</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimize-with-cookiebot-advanced-tracking-and-analytics-solutions/"><u>Optimize with Cookiebot: Advanced Tracking & Analytics Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimize-with-cookiebot-boosting-site-engagement-and-conversions/"><u>Optimize with Cookiebot: Boosting Site Engagement and Conversions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimize-with-cookiebot-elevate-site-analytics-and-user-experience-management/"><u>Optimize with Cookiebot: Elevate Site Analytics & User Experience Management</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimizing-billing-how-abbyy-and-m-files-revolutionize-invoicing-efficiency/"><u>Optimizing Billing: How ABBYY and M-Files Revolutionize Invoicing Efficiency</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionize-site-traffic-using-advanced-tracking-technology-tools/"><u>Revolutionize Site Traffic Using Advanced Tracking Technology Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-connection-between-abbyy-flexicapture-and-paperstream-by-pfu-software-suite/"><u>Seamless Connection Between ABBYY FlexiCapture and PaperStream by PFU Software Suite</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamlessly-transform-your-library-with-abbyys-latest-innovation-bookscanner-app/"><u>Seamlessly Transform Your Library with ABBYY's Latest Innovation - BookScanner App!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/smart-automation-and-secure-document-handling-solutions-for-us-federal-agencies/"><u>Smart Automation & Secure Document Handling Solutions for U.S. Federal Agencies</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/step-by-step-incorporating-music-into-canva-projects/"><u>Step-by-Step  Incorporating Music Into Canva Projects</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-significance-of-well-structured-page-content-for-enhanced-seo-performance/"><u>The Significance of Well-Structured Page Content for Enhanced SEO Performance</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-step-by-step-of-unsubscribing-on-steam/"><u>The Step-by-Step of Unsubscribing on Steam</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-achievement-susanne-richter-climbs-with-abbyy-holt-atop-dach-regions-peak/"><u>Top Achievement: Susanne Richter-Climbs with ABBYY Holt Atop DACH Region's Peak</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/worldwide-advancements-in-ai-powered-document-automation-insights-results-and-predictions-for-the-industry/"><u>Worldwide Advancements in AI-Powered Document Automation: Insights, Results, and Predictions for the Industry</u></a></li>
+</ul></div>
