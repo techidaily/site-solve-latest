@@ -1,7 +1,7 @@
 ---
 title: "WinX DVD Ripper Platinum 初心者向け完全マニュアル: 使用法、編集、設定詳細解説"
-date: 2024-08-31 15:30:18
-updated: 2024-09-02 11:45:58
+date: 2024-09-01T18:23:31.790Z
+updated: 2024-09-02T18:23:31.790Z
 categories:
   - winxdvd
 thumbnail: https://thmb.techidaily.com/fc56be1104b47b174a9a13d9255575e8e01dfcc34ec60d7f7f9e3cbb3a84553c.jpg
@@ -62,12 +62,21 @@ Similar to Blu-ray, DVD disc is also equipped with a variety of protections to p
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a10.png)2\. DVD to MKV Backup can Reserves All DVD Content** 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 If you have ever [encoded DVD movies into MP4](https://tools.techidaily.com/winxdvd/products/), AVI, or MPEG format, and been slightly frustrated with the loss of DVD extra elements, then you can switch to MKV as the DVD backup format. MKV is able to contain all detailed chapter information, sub-chapters, titles, multiple audio and video streams, subtitles, attachments and custom metadata.
 
 **![](https://www.winxdvd.com/resource/../seo-img/general-img/a7.png)3\. MKV Container Is as Universal as MP4 with High Quality** 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600113&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Win：Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<!-- affiliate ads end -->
 Since MKV supports any type of video/audio tracks and subtitles inside, and is quite efficient for storage and streaming, it's widely used on video transmitting. Usually, common DVD rippers can help rip a 4-8 GB DVD movie to a digital file in hundreds of MB, but you will get much quality loss. Only some seasoned DVD to MKV backup tools balance well on video file size and DVD ripping speed.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 2\. How to Convert DVDs to MKV Losslessly with WinX DVD Ripper
 
 [**WinX DVD Ripper Platinum**](https://tools.techidaily.com/winxdvd/products/) is the best DVD to MKV converter for Mac. Check more features below.
@@ -79,6 +88,9 @@ Since MKV supports any type of video/audio tracks and subtitles inside, and is q
 
 [![](https://www.winxdvd.com/resource/../seoimg/win.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [![](https://www.winxdvd.com/resource/../seoimg/mac.png) Free Download](https://tools.techidaily.com/winxdvd/products/) [Free Download](https://tools.techidaily.com/winxdvd/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 After downloading and installing the DVD to MKV ripper, follow the steps below to rip DVD to MKV on Mac.
 
 **Step 1\. Add the Source DVD** 
@@ -89,6 +101,10 @@ Tips: It also supports importing DVD folder and ISO image files for converting t
 
 ![Convert DVD to MP4 Windows 10/11 with WMP alternative](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/drp-interface-700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=38729081&QTY=1&AFFILIATE=108875&CART=1"><img src="https://website-prod.cache.wpscdn.com/img/wps-writer-free-word-processor-1x.3d9c80d.png" border="0">
+WPS Office Premium ( File Recovery, Photo Scanning, Convert PDF)--Yearly</a>
+<!-- affiliate ads end -->
 **Step 2\. Choose MKV as Target Format**
 
 After the DVD content is fully imported, the ripper will bypass copy protection and right check main title automatically. What you need to do is to define target format: Output Profile -> DVD Backup -> Backup full title to MKV. As the interface shows, it will back up all videos, audios and subtitles.
@@ -144,6 +160,9 @@ First of all, let's learn how to download and install libdvdcss for Handbrake:
 
 ![Rip DVD to MKV with HandBrake and libdvdcss](https://www.winxdvd.com/resource/../seo-img/handbrake-troubleshoot-tips/libdvdcss.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<!-- affiliate ads end -->
 After you finish the installation of HandBrake and libdvdcss, you can follow the steps to rip DVD to MKV with HandBrake.
 
 **Step 1.** Put target DVD to your optical drive. Open HandBrake and select your DVD. Then, HandBrake will scan DVD titles.
@@ -156,6 +175,9 @@ After you finish the installation of HandBrake and libdvdcss, you can follow the
 
 **Step 4.** Hit Start Encode button to begin ripping DVD to MKV. Note: HandBrake will decode the DVD and re-encode the video into MKV in H264, H265, or other codecs, during which quality loss will happen.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 5\. How to Rip DVD to MKV with VLC
 
 The famous media player VLC offers the ability to convert DVDs to MKV and various other formats. Some users may already have it on their computer. So there's a good chance that you don't need to get extra software to rip DVDs to MKV. 
@@ -173,6 +195,9 @@ Now let's learn how to rip DVDs to MKV usingi VLC?
 
 ![VLC protected DVD to MKV](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/rip-chapters-off-dvd-vlc.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
+<!-- affiliate ads end -->
 **Step 3.** Click the Convert/Save button and then you'll need to select the output profile. Open the Profile dropdown menu and check if there is an MKV profile. By default, VLC will choose to rip DVDs to "Video - H.264 + MP3 (MP4)". If there is no MKV option, click the gear button next to it and under Encapsulation, choose MKV and save it. 
 
 **Step 4.** Choose an output destination folder and then click Start. VLC will then begin ripping DVDs to MKV. 
@@ -195,6 +220,12 @@ Now let's learn how to rip DVDs to MKV usingi Movavi Video Converter?
 
 ![rip DVDs to MKV Movavi](https://www.winxdvd.com/resource/../seo-img/dvd-ripper/movavi-700.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://proteahair.pxf.io/c/5597632/1983634/23621" target="_top" id="1983634"><img src="//a.impactradius-go.com/display-ad/23621-1983634" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983634/23621" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## In Conclusion
 
 DVD to MKV converters play a valuable role in the digital transformation of physical media. These converters provide users with a convenient and efficient way to convert DVD content into the widely supported MKV format, preserving both video and audio quality. The flexibility offered by MKV, including support for multiple audio and subtitle tracks, makes it a popular choice for users looking to create digital backups or enjoy their DVD content on various devices. Let's select the best fit DVD to MKV converter and start converting DVD to MKV right now!
@@ -203,8 +234,17 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
 
 * [6 Ways to Convert DVD to MP4 on Mac for Free](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
 * [Top 10 Free DVD Players for Windows 10/11](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * [Best Preset Settings for HandBrake DVD to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 * [\[2024\] How to Free Convert DVD Video\_TS to MP4](https://tools.techidaily.com/winxdvd/products/) ![](https://www.winxdvd.com/resource/../seoimg/icon1.png)
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -220,3 +260,45 @@ DVD to MKV converters play a valuable role in the digital transformation of phys
      data-ad-slot="8358498916"
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-latest.techidaily.com/1-nakano-city-tokyo-enhancing-government-efficiency-with-abbyy-intelligent-automation-save-time-and-money-up-to-30/"><u>1. Nakano City, Tokyo: Enhancing Government Efficiency with ABBYY Intelligent Automation - Save Time & Money up to 30%%</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-generate-individual-meme-crafts-today/"><u>2024 Approved  Generate Individual Meme Crafts Today</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724313098118-nec/"><u>企業の作業プロセス改革を支えるNECソリューションイノベータ</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/audiovisual-allure-crafting-irresistible-podcast-previews/"><u>Audiovisual Allure  Crafting Irresistible Podcast Previews</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/boost-your-digital-marketing-with-cookiebot-technology/"><u>Boost Your Digital Marketing with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/boosting-your-websites-analytics-the-role-of-cookiebot-solutions/"><u>Boosting Your Website's Analytics: The Role of Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/carlsberg-fuhrt-abbyy-fur-beschleunigung-von-premium-bierproduktion-ein/"><u>Carlsberg Führt ABBYY Für Beschleunigung Von Premium-Bierproduktion Ein</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comprendre-lelectronique-facturation-un-guide-essentiel-pour-les-comptes-fournisseurs-software-de-labbyy/"><u>Comprendre L'électronique Facturation: Un Guide Essentiel Pour Les Comptes Fournisseurs - Software De L'ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-website-optimization-enhancing-your-online-presence/"><u>Cookiebot-Driven Website Optimization: Enhancing Your Online Presence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-enhance-your-site-with-smart-analytics-and-personalization/"><u>Cookiebot-Enhanced: Enhance Your Site with Smart Analytics & Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/customized-user-experience-enabled-by-cookiebot-technology/"><u>Customized User Experience Enabled by Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/decouvrez-les-nouvelles-fonctionnalites-dabbyy-flexicapture-avec-un-systeme-de-suivi-et-de-reporting-exceptionnellement-efficace/"><u>Découvrez Les Nouvelles Fonctionnalités D'ABBYY FlexiCapture Avec Un Système De Suivi Et De Reporting Exceptionnellement Efficace</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/easy-guide-how-to-bypass-zte-blade-a73-5g-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass ZTE Blade A73 5G FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/effective-ways-to-fix-checkra1n-error-31-from-apple-iphone-13-mini-by-drfone-ios/"><u>Effective Ways To Fix Checkra1n Error 31 From Apple iPhone 13 mini</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-logistics-management-with-our-step-by-step-shipping-procedure-guide-get-it-here-today/"><u>Enhance Logistics Management with Our Step-by-Step Shipping Procedure Guide – Get It Here Today!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-your-digital-strategy-through-cookiebot-driven-insights/"><u>Enhance Your Digital Strategy Through Cookiebot-Driven Insights</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-user-experience-and-seo-performance/"><u>Harness the Power of Cookiebot for Enhanced User Experience & SEO Performance</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-mobile-solutions-propel-expense-management-towards-seamless-financial-automation-insights-from-the-abbyy-perspective/"><u>How Mobile Solutions Propel Expense Management Towards Seamless Financial Automation: Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-repair-ios-system-of-iphone-xr-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of iPhone XR? | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/huge-discount-alert-300-off-the-asus-2024-rog-zephyrus-g14-oled-display-powered-by-rtx-4060/"><u>Huge Discount Alert: $300 Off the ASUS 2024 ROG Zephyrus G14 - OLED Display, Powered by RTX 4060</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-turn-off-google-location-to-stop-tracking-you-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Turn Off Google Location to Stop Tracking You on Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/instant-accessibility-how-textgrabber-revolutionizes-androids-on-the-fly-text-interaction/"><u>Instant Accessibility: How TextGrabber Revolutionizes Android's On-The-Fly Text Interaction</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/introducing-the-new-abbyy-sdk-advanced-capabilities-for-seamless-image-to-text-conversion/"><u>Introducing the New ABBYY SDK: Advanced Capabilities for Seamless Image-to-Text Conversion</u></a></li>
+<li><a href="https://facebook.techidaily.com/keep-it-confidential-implementing-restricted-user-access-on-facebook/"><u>Keep It Confidential: Implementing Restricted User Access on Facebook</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/kmworld-recognizes-abbyy-compreno-as-the-defining-tech-product-of-2016/"><u>KMWorld Recognizes ABBYY Compreno as the Defining Tech Product of 2016</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/laying-the-groundwork-how-to-pave-the-way-for-successful-digital-evolution-in-accounts-payable/"><u>Laying the Groundwork: How to Pave the Way for Successful Digital Evolution in Accounts Payable</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/leading-the-charge-in-ai-driven-document-management-abbyy-takes-first-place-2021-edition/"><u>Leading the Charge in AI-Driven Document Management: Abbyy Takes First Place, 2021 Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/looking-for-a-location-changer-on-itel-a05s-look-no-further-drfone-by-drfone-virtual-android/"><u>Looking For A Location Changer On Itel A05s? Look No Further | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/newly-appointed-ciso-clayton-c-peddy-joins-the-leadership-team-at-abbyy/"><u>Newly-Appointed CISO: Clayton C. Peddy Joins the Leadership Team at ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionize-your-online-marketing-efficient-campaigns-powered-by-cookiebot-innovations/"><u>Revolutionize Your Online Marketing: Efficient Campaigns Powered by Cookiebot Innovations</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionizing-document-management-in-microsoft-sharepoint-with-cutting-edge-abbyy-ocr-technology/"><u>Revolutionizing Document Management in Microsoft SharePoint with Cutting-Edge ABBYY OCR Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-integration-linking-abbyy-flexicapture-and-blue-prism-through-advanced-connectors/"><u>Seamless Integration: Linking ABBYY FlexiCapture and Blue Prism Through Advanced Connectors</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/space-saver-protocols-premium-storage-reviewed/"><u>Space Saver Protocols  Premium Storage Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/ten-instagram-feeds-blending-funny-and-sentimental-posts-for-2024/"><u>Ten Instagram Feeds Blending Funny & Sentimental Posts for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transform-your-accounting-workflow-with-smart-ai-financial-document-processing-solutions/"><u>Transform Your Accounting Workflow with Smart AI Financial Document Processing Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlocking-supply-chain-obstacles-duplicating-employee-expertise/"><u>Unlocking Supply Chain Obstacles: Duplicating Employee Expertise</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlocking-website-potential-with-cookiebots-advanced-tracking-technology-for-seo-success/"><u>Unlocking Website Potential with Cookiebot's Advanced Tracking Technology for SEO Success</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/unraveling-tech-mysteries-the-ultimate-resource-for-computer-hardware/"><u>Unraveling Tech Mysteries – The Ultimate Resource for Computer Hardware</u></a></li>
+</ul></div>
