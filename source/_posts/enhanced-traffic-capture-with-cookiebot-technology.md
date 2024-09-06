@@ -1,12 +1,18 @@
 ---
 title: Enhanced Traffic Capture with Cookiebot Technology
-date: 2024-08-25T23:30:45.306Z
-updated: 2024-08-26T23:30:45.306Z
+date: 2024-09-05T11:19:26.360Z
+updated: 2024-09-06T11:19:26.360Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b815cea54066fecbfdb8d09a425aaf17a53c85016a043f7f7cbe8c68c234f33d.png
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Traffic Capture with Cookiebot Technology
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
@@ -21,18 +27,54 @@ March 30, 2018
 
 MWC 2018 has come and gone, but the technology trends at the show often define the year ahead. Here is a sneak peek, to pique your interest.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Managing Security and Compliance
 
 With General Data Protection Regulation (GDPR) looming, it was not surprising that risk management and compliance issues were center stage at MWC 2018\. At their Mobile Conference within MWC, IBM pointed out that cybersecurity and data breaches remain a top concern for 52% of CIOs. Another [survey by Forrester](https://www.forrester.com/report/The+State+Of+GDPR+Readiness/-/E-RES141679) showed that only 30% of companies globally are fully GDPR-compliant. Thankfully, new AI-powered solutions are popping up to help IT professionals better manage security risks, while each year brings new devices with enterprise-grade security improvements like endpoint security, encryption and app security for data loss prevention and privacy controls.
 
 ![Managing Security and Compliance](https://static1.abbyy.com/abbyycommedia/25270/1-1024x768.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## 5G: from Hype to Reality
 
 5G, the next-generation mobile network, is expected to provide us with broadband-equivalent download speeds over mobile networks. Field-testing of 5G-enabled devices is already in progress in a few locations around the globe, and telecom operators at MWC 2018 hinted that 5G smartphones will hit the market next year. However, the technology is still at an early stage with many hurdles to cross.
 
 ![5G: from Hype to Reality](https://static1.abbyy.com/abbyycommedia/25271/2.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Telcos Embrace AI
 
 AI is rapidly becoming a commodity. It is also gaining traction in the telecoms industry where operators increasingly use AI to predict consumer demand and improve the way networks are designed and managed. Meanwhile, smartphone manufacturers have long been using AI to make their devices smarter. At MWC, Huawei proved that their flagship smartphone Mate 10 Pro is smart enough to drive a Porsche. Media had an opportunity to take a ride in a Porsche Panamera with a smartphone “in the driver’s seat”. The project was designed to show off the processing power of Huawei’s most advanced smartphone chip Kirin 970, which features real-time on-device AI.
@@ -40,10 +82,10 @@ AI is rapidly becoming a commodity. It is also gaining traction in the telecoms 
 ![Telcos Embrace AI](https://static1.abbyy.com/abbyycommedia/25272/3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134248/18498" target="_top" id="2134248">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134248" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134248/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## AR: Creating Immersive Experiences
 
@@ -51,12 +93,6 @@ A few years ago, everyone was enamored with VR as the next big thing, but now th
 
 ![AR: Creating Immersive Experiences](https://static1.abbyy.com/abbyycommedia/25273/4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Industrial IoT Is Making Waves
 
 Industrial IoT technologies (IIoT) are fueling the fourth industrial revolution. Today, we are witnessing the emergence of connected drones, robots and farm silos exchanging data. This creates abundant opportunities to transform how we work and produce goods, as well as raises serious questions about network security and stability: how are we going to manage all the data coming from myriads of devices around the world through global connectivity?
@@ -64,7 +100,16 @@ Industrial IoT technologies (IIoT) are fueling the fourth industrial revolution.
 ![Industrial IoT Is Making Waves](https://static1.abbyy.com/abbyycommedia/25274/5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993654">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Blockchain and Cryptocurrency Near Peak Hype
 
@@ -73,7 +118,10 @@ Blockchain was a major buzzword in Barcelona this year. Today, many people think
 ![Blockchain and Cryptocurrency Near Peak Hype](https://static1.abbyy.com/abbyycommedia/25275/6.png)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Smartphone Companies Bet on Cameras and Nostalgia
 
@@ -81,38 +129,46 @@ In their ever-accelerating race, smartphone manufacturers continue to bet big on
 
 ![Smartphone Companies Bet on Cameras and Nostalgia](https://static1.abbyy.com/abbyycommedia/25276/7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Other noteworthy phones at MWC include the pretty solid Nokia 8 Sirocco, Sony Xperia XZ2 and XZ2 Compact, Asus ZenFone 5 with the proverbial _notch_, and Vivo Apex concept phone with a fingerprint sensor built into the screen and a selfie camera that pops up like a piece of toast.
 
 HTC Global, the company making Nokia’s smartphones, unveiled Nokia 8110 4G aka “the banana phone” – the beloved slider now equipped with 4G connectivity, a 2MP rear camera, and a Qualcomm 205 SoC processor.
 
 ![Smartphone Companies Bet on Cameras and Nostalgia](https://static1.abbyy.com/abbyycommedia/25277/8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/2044747/22993" target="_top" id="2044747"><img src="//a.impactradius-go.com/display-ad/22993-2044747" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2044747/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Cars Are Getting Smarter
 
 Just like the majority of recent tech shows, MWC 2018 saw a wide variety of transportation and automotive tech representing the industry. BMW showcased their autonomous electric car i3 that you can summon using your smartphone. Once you take a seat in the back, you are free to relax and enjoy the entertainment system, while the car drives you wherever you need to be. When you arrive at your destination, you can just get out, lock the doors and go about your business – the car will find a parking spot and park itself.
 
 ![Cars Are Getting Smarter](https://static1.abbyy.com/abbyycommedia/25278/9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152810&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/842ca578342915ccb8ae069595ba7233/products/copy_bootit-ss1_178x139.jpg" border="0">The BootIt Collection covers multi-booting, partitioning, and disk imaging on traditional PC's using the standard BIOS and  newer PC's using UEFI.   The collection includes BootIt Bare Metal (BIBM) for standard BIOS systems and BootIt UEFI (BIU) for UEFI system. 
-</a>
-<!-- affiliate ads end -->
 ## Next-Gen Materials Will Give Us X-Ray Vision
 
 Ever heard of graphene? It is a next-generation ultra-light and flexible material showcased at MWC 2018 by Graphene Flagship, a €1B European research initiative. Graphene is 200 times stronger than steel and lighter than paper, which makes it well suited for a variety of tech applications like night vision, food inspection, fire control, vision under extreme weather conditions, and more.
 
 ![Cars Are Getting Smarter](https://static1.abbyy.com/abbyycommedia/25279/10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Overall, while there was a lot of great new tech at MWC 2018, the show will mostly be remembered for the political unrest and snowy weather. The biggest product announcement (Samsung Galaxy S9) was incremental, with no groundbreaking updates. LG brought a revamped version of V30, Lenovo and Huawei launched laptops instead of phones, and HTC had nothing new to offer. Yet, MWC 2018 still offers a great opportunity to see the big picture and observe the trends in consumer and enterprise tech that will shape our lives going forward.
 
 ![Cars Are Getting Smarter](https://static1.abbyy.com/abbyycommedia/25280/11.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 **_By Catherine Matantseva_**
 
 _This is an abridged version of an article titled "MWC 2018: Key Trends and Highlights We Will Actually Remember" published on ABBYY Mobile Blog. To [read the full version, click here](https://tools.techidaily.com/abbyy/products/)._
@@ -125,6 +181,18 @@ Catherine Johnson
 
 Director – Analyst Relations & Global Media Analyst Relations at ABBYY
 
+<!-- affiliate ads begin -->
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

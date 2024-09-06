@@ -1,22 +1,46 @@
 ---
 title: Elevate Your Website Analytics and Performance Through Advanced Cookiebot Technology
-date: 2024-08-25T23:30:39.384Z
-updated: 2024-08-26T23:30:39.384Z
+date: 2024-09-05T11:19:26.252Z
+updated: 2024-09-06T11:19:26.252Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/c7faa06295ae09ceb9c04771af8ef4a70065bcb58f83238cd328dc914caf4d9a.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1982461">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Elevate Your Website Analytics and Performance Through Advanced Cookiebot Technology
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## tangro® erhöht Prozess-Sicherheit im Dokumenteneingang dank ABBYY
 
 10\. Mai 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, erhöht die Ausfallsicherheit von Lösungen der tangro software components GmbH weiter. Der Hersteller von embedded SAP-Lösungen setzt bei seiner Software zur automatisierten Dokumentenverarbeitung schon lange auf die OCR-Technologie von ABBYY für die Dokumentendigitalisierung und Texterkennung (OCR). Diese ist die Basis für die Datenextraktion und die darauf folgende Verarbeitung in SAP. Dank der neuen Funktion ‚redundanter Netzwerk-Lizenz-Manager‘ im integrierten ABBYY OCR-Toolkit können Applikationen von tangro nun einen durchgängigen, ausfallsicheren Betrieb bei der Texterkennung im Dokumenteneingang sichern. Kunden von tangro gewinnen dadurch eine höhere Prozess- und Investitionssicherheit.
 
 Die tangro software components GmbH ist ausgewiesener Experte für die automatisierte Verarbeitung eingehender Dokumente in SAP. Mit der tangro Inbound Suite bietet der Software-Hersteller eine Komplettlösung für die automatisierte Dokumenteneingangsverarbeitung, die SAP-embedded ist. tangro nutzt seit Jahren das Software Development Kit ABBYY FineReader Engine erfolgreich für die OCR-Komponente in der hauseigenen Lösung für die Belegverarbeitung. Je nach Kundenprojekt werden damit bis zu mehreren Tausend Dokumente pro Tag verarbeitet. Die integrierte ABBYY OCR-Technologie konvertiert Text in eingescannten Dokumenten in weiterverarbeitbare und strukturierte Daten, die dann an die entsprechenden SAP-Workflows übergeben werden. Dieser Arbeitsschritt ist wesentlich für die automatisierte Dokumenteneingangsverarbeitung. Ein Ausfall des Systems würde alle Folgeprozesse beeinträchtigen, zusätzliche Kosten für die Wiederherstellung des Systems verursachen und das Risiko von Datenverlusten erhöhen – vor allem bei hohen Dokumentenvolumen.
@@ -75,9 +99,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://video-capture.techidaily.com/new-2024-approved-mythos-mazes-decades-best-adventure-games/"><u>[New] 2024 Approved  Mythos Mazes  Decade’s Best Adventure Games</u></a></li>

@@ -1,12 +1,18 @@
 ---
 title: "Enhanced Site Performance with Automated Bots: The Power of CookieBot"
-date: 2024-08-25T23:30:44.255Z
-updated: 2024-08-26T23:30:44.255Z
+date: 2024-09-05T11:19:26.338Z
+updated: 2024-09-06T11:19:26.338Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ac0768cd06937c4c888756e7c488f5bb27ac1d6ad36698509cc3575ae5a17b1c.jpg
 ---
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118324/7443" target="_top" id="2118324">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118324" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118324/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Enhanced Site Performance with Automated Bots: The Power of CookieBot
 
 Whitepaper
@@ -15,12 +21,27 @@ Whitepaper
 
 ![Wieso es so wichtig ist, Inhalte zu verstehen - ABBYYs Whitepaper](https://static1.abbyy.com/abbyycommedia/33258/24b-inevitable-need-for-understanding-content-de-262x340.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115934/19272" target="_top" id="2115934">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115934" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115934/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Nutzen Sie den No-Code- / Low-Code-Ansatz, um unstrukturierte Inhalte als Automatisierung­shindernis zu überwinden
 
 Durch die aktuellen Ereignisse ist der Druck auf Unternehmen, die digitale Transformation in ihre strategischen Pläne aufzunehmen, gestiegen. Mit dem Aufkommen von Low-Code- und No-Code-Entwicklungsplattformen entstand die neue Tätigkeit des Laienentwicklers. Technologien wie RPA waren für die ersten Phasen der digitalen Transformation vieler Unternehmen maßgeblich. Unternehmen entwickeln sich jetzt schnell und mit neuer Dringlichkeit weiter, um komplexere, hochwertigere Prozesse zu analysieren und zu automatisieren. Diese wichtigen Prozesse betreffen häufig auch Kunden und beinhalten unweigerlich unstrukturierte Inhalte, die intelligent verarbeitet werden müssen.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ### Jetzt herunterladen!
 
@@ -34,7 +55,10 @@ Laden Sie dieses Whitepaper herunter und erfahren Sie mehr über:
 Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente Plattform für die intelligente Dokumentenverarbeitung diesen Bedarf lösen kann. Die Plattform fügt sich in das neue Paradigma der benutzerfreundlichen No-Code- / Low-Code-Implementierung ein, ist auf Laienentwickler abgestimmt und ermöglicht die Integration in RPA- und BPM-Plattformen. Sie erfahren auch, wie Sie wiederverwendbare Komponenten aus dem ABBYY Marketplace schnell in neuen Automatisierungsinitiativen einsetzen können, um innerhalb kurzer Zeit sichtbare Geschäftsergebnisse zu erzielen.
 
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139108/17108" target="_top" id="2139108">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139108" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139108/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Danke für Ihr Interesse an ABBYY.
 
@@ -43,7 +67,10 @@ Lesen Sie dieses Whitepaper, um zu erfahren, wie ABBYY Vantage als intelligente 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082535/7443" target="_top" id="2082535"><img src="//a.impactradius-go.com/display-ad/7443-2082535" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082535/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135368/19272" target="_top" id="2135368">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135368" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135368/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 

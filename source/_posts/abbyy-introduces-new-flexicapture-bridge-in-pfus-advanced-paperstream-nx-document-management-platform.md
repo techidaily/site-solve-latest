@@ -1,22 +1,46 @@
 ---
 title: ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform
-date: 2024-08-25T23:30:25.213Z
-updated: 2024-08-26T23:30:25.213Z
+date: 2024-09-05T11:19:25.980Z
+updated: 2024-09-06T11:19:25.980Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd894777e476ebe9274260c57e1be.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY Launches FlexiCapture Connector for PFU’s PaperStream NX Manager Software, Enabling Complex Automation
 
 September 30, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 #### _Fujitsu Image Scanner users can now access ABBYY FlexiCapture technology that captures data from any type of document and powers intelligent automation._
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), a Digital Intelligence company, today announced the release of the ABBYY FlexiCapture Connector for [PFU’s PaperStream NX Manager](https://www.fujitsu.com/uk/products/computing/peripheral/scanners/fi/software/ps-nxmanager/ps-nxmanager.html). This connector enables Fujitsu Image Scanners to leverage the Content Intelligence capabilities of ABBYY FlexiCapture to extract business-critical data from unstructured and semi-structured documents, such as invoices and receipts. The solution accelerates automation of document-centric processes allowing organizations to optimise workflows, lower risks, and improve customer experience.
@@ -84,9 +108,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://some-guidance.techidaily.com/new-the-pinnacle-of-personal-data-holdings/"><u>[New] The Pinnacle of Personal Data Holdings</u></a></li>

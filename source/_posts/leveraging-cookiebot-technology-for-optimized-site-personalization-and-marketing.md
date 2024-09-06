@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cookiebot Technology for Optimized Site Personalization and Marketing
-date: 2024-08-25T23:30:54.496Z
-updated: 2024-08-26T23:30:54.496Z
+date: 2024-09-05T11:19:26.518Z
+updated: 2024-09-06T11:19:26.518Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092ccbbf441a17ff63d6863be1.png
@@ -11,6 +11,18 @@ thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Low-Code / No-Code Intelligent Document Processing for Transportation & Logistics
 
 ###### Reginald J. Twigg
@@ -19,12 +31,24 @@ January 05, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/35071/skills-for-transportation2-cover-848x444.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 The most newsworthy topic lately has been on the supply chain disruptions—shortages specifically. Every consumer and business now experiences supply chain disruption in the form of shortages and rapid inflation. Scarcity directly drives up the cost of goods, and Transportation and Logistics play a key role in this conversation. While many shortages come from interruption of production, COVID being the most notable cause, the issue is compounded by hard-coded document-dependent processes that don’t adapt quickly enough to onboard new suppliers or tackle changes in shipping requirements.
 
 Agility in document processing matters now more than ever to shippers as a vital link in the supply chain. Eighty percent of business processes are document-driven, which can be the weakest link in a supply chain. Yet, many shippers don’t know where to begin this automation journey in a way that gets the quickest wins.
 
 **[Get started with our checklist of Document Skills for Transportation & Logistics in the ABBYY Marketplace.](https://static3.abbyy.com/abbyycommedia/34326/checklist-transportation-documentskillsmarketplace-en.pdf?itm%5Fsource=corpblog-en-skills-for-transportation-and-logistics)**
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## The difference low-code / no-code Intelligent Document Processing (IDP) solutions make for shippers
 
 Most shippers have some experience with traditional automation approaches–most notably [robotic process automation](https://tools.techidaily.com/abbyy/products/) (RPA) with basic optical character recognition (OCR) technologies. These tools have enabled automation of rote tasks and rote document data extraction and validation in stable processes. But, change has become a fact of shipping operations in today’s normal of supply chain disruption, and traditional OCR solutions are no longer enough. They focus only on data field recognition, extraction, and validation, and accomplish this most often through hard-coded instructions from applications and IT systems.
@@ -42,7 +66,10 @@ Low-code / no-code solutions take NER flexibility even further by removing the b
 Since many shippers do not have the IT budget to add yet another big system application, low-code / no-code IDP solutions can be implemented directly by your operations group, on the front line where agility is most needed.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 ## Automating logistics operations with pre-built document skills
 
@@ -51,7 +78,10 @@ What if shippers could have ready-made solutions for these critical documents–
 ![ABBYY Vantage](https://static1.abbyy.com/abbyycommedia/32490/vantage-scheme-848.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 These Intelligent Document Processing solutions are now available with [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/). With a low-code / no-code library of pre-built freight and shipping documents, Vantage empowers shippers and logistics providers of any size to meet their most difficult document processing challenges using their operational knowledge, instead of a major IT investment.
 
@@ -69,18 +99,12 @@ Available now in the [ABBYY Vantage Marketplace](https://tools.techidaily.com/ab
 
 Vantage pre-built containerized document [skills for Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) deliver the adaptability, straight-through processing automation, and lowest-cost solutions needed to respond to ever tighter SLAs in a world where supply chain disruptions have become normal business. Now, automation is in reach of shippers with the most constrained budgets.
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892107/21290" target="_top" id="1892107"><img src="//a.impactradius-go.com/display-ad/21290-1892107" border="0" alt="" width="1200" height="628"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892107/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Looking to optimize your Transportation & Logistics operations for rapid change?
 
 We have a skill for that.
 
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 ## A marketplace approach
 
 Real-time visibility and document processing are the key to supply chain digital transformation. That is precisely the idea behind the new [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), the first digital marketplace for processing and understanding enterprise documents that provides a rich collection of content skills, connectors, and assets. Many of the top shippers and logistics providers, and many cloud-based companies, are providing their business users and citizen developers the best-in-class document and content processing with our easy-to-use, configurable, and pluggable platform, which is ready to use within minutes.
@@ -94,13 +118,13 @@ Learn more about how ABBYY is helping [Transportation and Logistics providers](h
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 Reginald J. Twigg
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 

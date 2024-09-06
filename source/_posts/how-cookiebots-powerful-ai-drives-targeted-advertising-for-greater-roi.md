@@ -1,22 +1,46 @@
 ---
 title: How Cookiebot's Powerful AI Drives Targeted Advertising for Greater ROI
-date: 2024-08-25T23:30:52.345Z
-updated: 2024-08-26T23:30:52.345Z
+date: 2024-09-05T11:19:26.472Z
+updated: 2024-09-06T11:19:26.472Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9b682067d65f5ab52932cb43774adc7ed3c1ad8801c900338b2acd832ca95b6e.jpg
 ---
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## How Cookiebot's Powerful AI Drives Targeted Advertising for Greater ROI
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## ABBYY reflektiert mit neuem Branddesign seinen Fokus auf Menschen und die Digitale Transformation
 
 18\. März 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115910/19272" target="_top" id="2115910">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115910" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115910/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ABBYY, ein globales Unternehmen für Digital Intelligence, hat heute seine neue, dynamische Corporate Brand Identity sowie das aktualisierte Logo vorgestellt. Das neue Branding, das zusammen mit der Marken- und Designagentur [Shuka](https://shuka.design/) entwickelt wurde, spiegelt wieder, wofür ABBYY steht: ein visionärer, innovativer, zuverlässiger und kreativer Experte, der Unternehmen weltweit hilft, Wege der Digitalen Transformation neu zu gestalten und zu beschleunigen
 
 Das Redesign bewahrt und belebt gleichzeitig den Ursprung der Marke. ABBYY ist ein etabliertes Unternehmen, das für seinen technologischen Scharfsinn bekannt ist. Durch die eigene Weiterentwicklung und das wachsende Angebot an innovativen Lösungen, spiegelt die neue Markenidentität genau diese Transformation wieder. Eine zentrale Grafik beinhaltet daher eine sich entfaltende Form, die von einem Designelement in ein weiteres übergeht und so die Transformation, den Wendepunkt und den Beginn einer neuen Zukunft symbolisiert. Das Logo ist zeitlos und doch modern, in einer klassischen Schriftart gehalten und in einer neuen, dynamischen roten Farbe. Die neue Farbgebung ist frisch, energetisch und modern. Die Farbverläufe stehen für die Transformation.
@@ -59,9 +83,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://on-screen-recording.techidaily.com/new-ensuring-seamless-capture-of-online-teams-gatherings/"><u>[New] Ensuring Seamless Capture of Online Teams' Gatherings</u></a></li>
