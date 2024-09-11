@@ -1,40 +1,64 @@
 ---
 title: Customize User Experience with Cookiebot Technology Integration
-date: 2024-09-05T11:19:26.169Z
-updated: 2024-09-06T11:19:26.169Z
+date: 2024-09-10T10:04:24.155Z
+updated: 2024-09-11T10:04:24.155Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/83bd7ea4746fef983e9856e6043e48be8dfdd87c4406254504ec111012f48674.jpg
 ---
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Customize User Experience with Cookiebot Technology Integration
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Survey Finds US Workers Want to Delegate 48% of Tasks to Artificial Intelligence
 
 March 19, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134236/18498" target="_top" id="2134236">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134236" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134236/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #### _Also Reveals Top Most Hated Tasks Include Attending Meetings and Reviewing Long Documents_
 
 A new survey by ABBYY, a global leader in Enterprise Content IQ, shows almost half of office workers would be happy to have robots do parts of their job that they dislike. The survey also revealed that staff would love to hand over tasks such as reviewing long documents, data entry, electronic filing, and even attending meetings.

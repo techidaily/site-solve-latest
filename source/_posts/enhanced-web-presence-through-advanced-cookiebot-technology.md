@@ -1,21 +1,75 @@
 ---
 title: Enhanced Web Presence Through Advanced Cookiebot Technology
-date: 2024-08-25T23:31:18.112Z
-updated: 2024-08-26T23:31:18.112Z
+date: 2024-09-10T10:04:24.888Z
+updated: 2024-09-11T10:04:24.888Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/da588ad139882f359e01e1480116ed64f1f64c7e5500ad5bb32d29ff957df078.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Enhanced Web Presence Through Advanced Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975562">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975562.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975562">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975562.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975562%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975562/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## The City of Munich relies on ABBYY to digitise its building files
 
 July 09, 2018
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY Europe, a leading provider of document recognition, data capture and linguistic technologies and services, is supporting Munich, the capital of Bavaria, with the digitisation of building files in the Urban Planning and Building Regulations department. The goal of the project is to create a digital base for application processing, thus simplifying the processing of construction applications. The manual work involved in incoming building applications will be kept to a minimum by automatically digitising and classifying files, ensuring a higher throughput rate for application processing.
 
@@ -72,9 +126,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://article-files.techidaily.com/new-2024-approved-lg-ultrafine-4k-monitor-complete-review/"><u>[New] 2024 Approved  LG UltraFine 4K Monitor Complete Review</u></a></li>

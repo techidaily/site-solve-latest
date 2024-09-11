@@ -1,21 +1,75 @@
 ---
 title: "Cookiebot-Enabled Customization: Enhancing Your Website's Personalization"
-date: 2024-08-25T23:31:56.262Z
-updated: 2024-08-26T23:31:56.262Z
+date: 2024-09-10T10:04:25.490Z
+updated: 2024-09-11T10:04:25.490Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ad5375273ed5273cf93923e35b6ab94c30b89301141494859d6be3ab7df15629.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1975658">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Cookiebot-Enabled Customization: Enhancing Your Website's Personalization
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY enrichit sa bibliothèque Open Source NeoML
 
 22 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 * _NeoML offre des performances accrues de 50 % par rapport aux bibliothèques Open Source de Machine Learning existantes.1_
 * _Le langage de programmation Python, plus simple à appréhender, est désormais compatible avec NeoML, en plus de C++, Java et Objective-C qui étaient déjà pris en charge._
@@ -65,9 +119,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-mirroring-recording.techidaily.com/new-ultimate-gameplay-modifications-in-terraria/"><u>[New] Ultimate Gameplay Modifications in Terraria</u></a></li>

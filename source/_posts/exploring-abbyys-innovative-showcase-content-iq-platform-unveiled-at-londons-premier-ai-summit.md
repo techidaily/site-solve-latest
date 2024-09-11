@@ -1,21 +1,63 @@
 ---
 title: Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit
-date: 2024-08-25T23:32:06.281Z
-updated: 2024-08-26T23:32:06.281Z
+date: 2024-09-10T10:04:25.664Z
+updated: 2024-09-11T10:04:25.664Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e295c9ac73c2cf7b4e3fab8b993b16c3823b6dce1be16a4461eea67969cf81e.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY to Showcase Content IQ Platform at The AI Summit in London
 
 June 10, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY, a global leader in Content IQ technologies and solutions, today announced that it will participate at the AI Summit, London being held from 12th - 13th June 2019 at ExCeL Centre, London UK.
 
@@ -54,9 +96,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-inspiration-for-individuality-on-snapchat-a-resource-of-over-120-private-story-concepts/"><u>[New] 2024 Approved  Inspiration for Individuality on Snapchat  A Resource of Over 120 Private Story Concepts</u></a></li>

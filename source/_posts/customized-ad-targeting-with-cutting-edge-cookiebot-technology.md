@@ -1,15 +1,43 @@
 ---
 title: Customized Ad Targeting with Cutting-Edge Cookiebot Technology
-date: 2024-08-25T23:31:58.381Z
-updated: 2024-08-26T23:31:58.381Z
+date: 2024-09-10T10:04:25.520Z
+updated: 2024-09-11T10:04:25.520Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0ee73dae3abc4f97673bc3bc.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115912/19272" target="_top" id="2115912">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115912" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115912/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Customized Ad Targeting with Cutting-Edge Cookiebot Technology
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY befördert Chip VonBurg zum Chief Customer Officer
 
@@ -17,7 +45,35 @@ thumbnail: https://thmb.techidaily.com/29d02750ad0cb057d82cf1dca19da27d5429074e0
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ![Chip Photo 848X444](https://static4.abbyy.com/abbyycommedia/37570/chip-photo-848x444.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 _Die Ernennung unterstreicht ABBYYs Bestreben, den Erfolg der intelligenten Automatisierung bei globalen Kunden zu beschleunigen._
 
@@ -37,22 +93,44 @@ _Chip VonBurg, Chief Customer Officer, ABBYY_
 
 Wenn Sie mehr über die intelligenten Automatisierungslösungen von ABBYY erfahren möchten, besuchen Sie [www.abbyy.com/de](https://tools.techidaily.com/abbyy/products/).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Über ABBYY
 
 ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Sitz in Milpitas, Kalifornien (USA) und Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).
 
 ABBYY ist als Wort- und Bildmarke, auch in Verbindung mit ABBYY Produkten, geschützt. Die Marken dürfen nicht ohne Zustimmung der Inhaber verwendet werden.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Pressekontakt:
 
 ![Bianca 110X110](https://static2.abbyy.com/abbyycommedia/36222/bianca-110x110.png)
 
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Bianca Stupp
 
 _ABBYY_

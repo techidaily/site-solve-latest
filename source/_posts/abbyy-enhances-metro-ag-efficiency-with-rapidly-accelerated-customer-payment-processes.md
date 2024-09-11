@@ -1,11 +1,25 @@
 ---
 title: ABBYY Enhances METRO AG Efficiency with Rapidly Accelerated Customer Payment Processes
-date: 2024-08-25T23:33:03.790Z
-updated: 2024-08-26T23:33:03.790Z
+date: 2024-09-10T10:04:26.635Z
+updated: 2024-09-11T10:04:26.635Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a500625454298afd84e9855ed4fbb6b.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY Enhances METRO AG Efficiency with Rapidly Accelerated Customer Payment Processes
 
@@ -13,9 +27,43 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 Wholesale & Retail Trade | Accounts Payable Automation
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ABBYY Accelerates METRO AG Companies’ Wholesale Customer Payments up to 90% Faster
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/183283.png?h=40&iar=0&w=120)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
@@ -24,6 +72,26 @@ Wholesale & Retail Trade | Accounts Payable Automation
 Wholesale & Retail Trade | Accounts Payable Automation 
 
 ![METRO Digital and ABBYY](https://static3.abbyy.com/abbyycommedia/37641/metro-digital-case-study-intelligent-document-processing-en_tn_556x303.jpg) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Customer Overview
 
@@ -80,15 +148,40 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Invoice Processing Solutions](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static3.abbyy.com/abbyycommedia/37643/metro-digital-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

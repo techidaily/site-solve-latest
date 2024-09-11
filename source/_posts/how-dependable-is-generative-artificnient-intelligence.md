@@ -1,21 +1,43 @@
 ---
 title: How Dependable Is Generative Artificnient Intelligence?
-date: 2024-09-05T11:19:26.497Z
-updated: 2024-09-06T11:19:26.497Z
+date: 2024-09-10T10:04:24.480Z
+updated: 2024-09-11T10:04:24.480Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eb6701eb360daf00501aea3027f5f407ca588034548873224d944d5de49dcde3.jpg
 ---
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## How Dependable Is Generative Artificnient Intelligence?
 
 [Back to The Intelligent Enterprise](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Is Generative AI Trustworthy?
 
@@ -47,12 +69,6 @@ Fourth is what is referred to as the “[Overton window bias](https://www.newsta
 
 Fifth is “deference bias,” wherein there is a tendency to trust technology, [considering the “workload of most knowledge workers and the immense promise of this shiny new toy”](https://www.forbes.com/sites/forbestechcouncil/2023/03/31/uncovering-the-different-types-of-chatgpt-bias/?sh=531d33c1571b).
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The urgent need for AI regulation
 
 To address these biases, it’s prudent to adhere to ethical principles and values relating to the development and regulation of artificial intelligence (AI) technologies. There are four key reasons that the need for AI regulations must be addressed immediately:
@@ -76,12 +92,20 @@ Blog
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### What can be done to optimize ChatGPT output accuracy?
 
 Regulations that mitigate against the most obvious potential harms of generative AI is just one dimension to harness its potential. There are best practices and technological approaches that can improve the accuracy and reliability of generative AI-based applications.
@@ -100,6 +124,20 @@ Would you like to stay up to date on the latest thought leadership from ABBYY ex
 
 ![Andrewpery 99X99](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -110,12 +148,20 @@ Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-c
 
 ![Maxime Vermeir 110X110 (1)](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2115915/19272" target="_top" id="2115915">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115915" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115915/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -124,30 +170,26 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
+
+
+
+
 <!-- affiliate ads begin -->
-<span id="1374819">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1374819.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1374819">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374819.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374819%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374819/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Additional Insights:
 
 1 / 3 
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg) **Are Large Language Models (LLMs) the Future?** Read more](https://tools.techidaily.com/abbyy/products/) [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg) **The Gap Is Closing Between AI Innovation and Time-to-Value** Read more](https://tools.techidaily.com/abbyy/products/) [![How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning](https://static3.abbyy.com/abbyycommedia/37506/how-banks-fight-fraud-with-ai-and-ml_848x444.jpg) **How Banks Are Meeting Compliance Regulations and Fighting Fraud with AI and Machine Learning** Read more](https://tools.techidaily.com/abbyy/products/) [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg) **How Process Mining Improves Business Processes and Prevents Cyber Threats** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg) **Customer Point of View: Process Mining Reveals $6 Million in Savings** Read more](https://tools.techidaily.com/abbyy/products/) [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg) **Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific** Read more](https://tools.techidaily.com/abbyy/products/) [![The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing](https://static1.abbyy.com/abbyycommedia/37510/the-second-tax-revolution_848x444.jpg) **The Second Tax Revolution—How Trustworthy AI Transforms Online Tax Filing** Read more](https://tools.techidaily.com/abbyy/products/) [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg) **How AI Can Help Government Agencies Win at Total Experience (TX)** Read more](https://tools.techidaily.com/abbyy/products/) [![Creating an Intelligent Automation Symphony](https://static1.abbyy.com/abbyycommedia/36940/tlp_ia_orchestra_485765348_848x444.jpg) **Creating an Intelligent Automation Symphony** Read more](https://tools.techidaily.com/abbyy/products/) [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg) **Document AI Creating a Safer World** Read more](https://tools.techidaily.com/abbyy/products/) [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg) **Customer Point of View: Approach Automation Step by Step** Read more](https://tools.techidaily.com/abbyy/products/) [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg) **Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them** Read more](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 #### Subscribe for updates
 
 Get updated on the latest insights and perspectives for business & technology leaders

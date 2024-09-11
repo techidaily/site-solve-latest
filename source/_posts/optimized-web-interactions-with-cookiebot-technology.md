@@ -1,21 +1,69 @@
 ---
 title: Optimized Web Interactions with Cookiebot Technology
-date: 2024-08-25T23:32:53.791Z
-updated: 2024-08-26T23:32:53.791Z
+date: 2024-09-10T10:04:26.471Z
+updated: 2024-09-11T10:04:26.471Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4815bdc4b07f62378c934e8844c6ab3ed5ccd8bb0ecbd12c41105ddecee78795.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Optimized Web Interactions with Cookiebot Technology
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY refond son identité graphique
 
 18 mars 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1938141">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [ABBYY](https://tools.techidaily.com/abbyy/products/), multinationale spécialisée dans l'intelligence digitale, refond son identité graphique avec des illustrations et un logo actualisés en s'appuyant sur des couleurs vives. Ce nouveau design, créé de concert avec l'agence [Shuka](https://shuka.design/), reflète l'image qu'ABBYY souhaite incarner : une expertise tournée vers le futur, l'innovation, le dynamisme et la créativité au service de la transformation digitale des entreprises.
 
@@ -60,9 +108,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://screen-video-capture.techidaily.com/new-2024-approved-expertly-navigating-the-world-of-audio-recording-gear-apple-specific/"><u>[New] 2024 Approved  Expertly Navigating the World of Audio Recording Gear (Apple-Specific)</u></a></li>

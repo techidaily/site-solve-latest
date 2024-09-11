@@ -1,11 +1,31 @@
 ---
 title: Live Webinar on Seamlessly Merging FlexiCapture with Timeline – The ABBYY Experience
-date: 2024-08-25T23:32:51.516Z
-updated: 2024-08-26T23:32:51.516Z
+date: 2024-09-10T10:04:26.439Z
+updated: 2024-09-11T10:04:26.439Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/fe80a3ac8c13e1838e754dfd0b220ea591dc82f5debc2a4e7c75f671463eb2ab.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1976998">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Live Webinar on Seamlessly Merging FlexiCapture with Timeline – The ABBYY Experience
 
@@ -14,6 +34,20 @@ thumbnail: https://thmb.techidaily.com/fe80a3ac8c13e1838e754dfd0b220ea591dc82f5d
 ## Realize Incremental Value from Your FlexiCapture Implementations with Process Optimization
 
 English
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Featuring
 
@@ -27,34 +61,64 @@ Senior Sales Engineer, **ABBYY**
 
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![20 Andrewpery 198X198](https://static4.abbyy.com/abbyycommedia/25498/20-andrewpery-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ### Andrew Pery
 
 Process Intelligence Lead, **ABBYY**
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Are you looking to save money and improve core processes while utilizing a complex mix of hundreds, sometimes thousands of individual systems?
 
 ![FlexiCapture for Invoices Video](https://static1.abbyy.com/abbyycommedia/32098/06-realize-incremental-value-360x232.jpg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Most organizations like yours are not performing at their full potential. Others are achieving these successes with ABBYY today:
 
 * 20% increase in productivity at a Consumer Packed Goods company
 * $8M savings per year at a telecommunications provider
 * Identified nearly $6M over a year from uncollected co-pays at a major healthcare provider
 * 80% straight through processing of invoices without any human touch
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137393/7443" target="_top" id="2137393">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137393" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137393/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Find out how you too can reimagine your processes and transform your organization today.
 
@@ -66,25 +130,58 @@ What you’ll learn:
 * How to rapidly expose how every FlexiCapture process is executed, including the most ad-hoc, variable workflows
 * How to continuously monitor FlexiCapture process performance and generate a foundation for data-driven decisions with quantifiable process metrics
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Fill in the form to register for the webinar now
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Thank you for registering!
 
 [![01 Realize Incremental Value EN 643X363](https://static4.abbyy.com/abbyycommedia/32097/01-realize-incremental-value-643x363.jpg)](https://www.youtube.com/watch?v=jYdNOvFHA8M) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115908/19272" target="_top" id="2115908">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115908" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115908/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Please check your inbox, we have sent you a confirmation email.
 
@@ -96,7 +193,35 @@ Please check your inbox, we have sent you a confirmation email.
 
 [![Cards Financialservices 360X232](https://static2.abbyy.com/abbyycommedia/34945/cards-financialservices-360x232.jpg) Shared Services & Outsourcing Woche 2021 ![ABBYY Logo Forcards](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) ![Fraunhofer Logo Forcards 118X33 (1)](https://static2.abbyy.com/abbyycommedia/35533/fraunhofer-logo-forcards-118x33.png) German Watch webinar](https://www.abbyy.com/webinars/on-demand/handelsblatt-podcast-so-klingt-wirtschaft/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [![Cards BPO 360X232](https://static5.abbyy.com/abbyycommedia/34944/cards-bpo-360x232.jpg) Shared Services & Outsourcing Woche 2021 ![SSON Logo Forcards 180X30](https://static4.abbyy.com/abbyycommedia/34860/sson-logo-forcards-180x30.png) ![Bosch Logo Forcards 113X27](https://static5.abbyy.com/abbyycommedia/34858/bosch-logo-forcards-113x27.png) ![ABBYY Logo Forcards](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) German Watch webinar](https://www.abbyy.com/webinars/on-demand/shared-services-and-outsourcing-woche-2021/) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Please fill in this form to watch the webinar:
 

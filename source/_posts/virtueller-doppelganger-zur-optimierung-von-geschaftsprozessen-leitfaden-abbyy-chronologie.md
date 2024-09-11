@@ -1,11 +1,25 @@
 ---
 title: "Virtueller Doppelgänger Zur Optimierung Von Geschäftsprozessen: Leitfaden - ABBYY Chronologie"
-date: 2024-08-25T23:32:59.615Z
-updated: 2024-08-26T23:32:59.615Z
+date: 2024-09-10T10:04:26.576Z
+updated: 2024-09-11T10:04:26.576Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/48eff568c35933b40401a65faa40dbe7bb6a58eb499e343dac1cbda32fedf601.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123472/16836" target="_top" id="2123472">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123472" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123472/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Virtueller Doppelgänger Zur Optimierung Von Geschäftsprozessen: Leitfaden - ABBYY Chronologie
 
@@ -15,38 +29,108 @@ Datenblatt
 
 ![Der Digitale Zwilling für Geschäftsprozesse](https://static1.abbyy.com/abbyycommedia/34351/80b-rise-of-the-process-digital-twin-de-262x340.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Steuern Sie Ihre Daten. Verstehen Sie Ihre Prozesse. Sehen Sie die Zukunft voraus. Handeln Sie effizienter.
 
 Dieses Untersuchungsgebiet hat sich zu einer Produktklasse entwickelt, die zusammenfassend als Process-Mining- oder Process-Analytics-Anwendungen bezeichnet wird. Die Entwicklung dieses Untersuchungsgebiets hat eine neue Art von Analytik hervorgebracht; sie läuft unter dem Begriff Process Intelligence.
 
 Process Intelligence geht über einfaches Process Mining hinaus und bietet dem Benutzer im Unternehmen eine einfach zu verwendende Point-and-Click-Oberfläche ohne Programmier-Anforderungen. Es ist eine unverzichtbare und sich schnell entwickelnde Geschäftsstrategie, die es Unternehmen ermöglicht, die Kontrolle über ihre Prozesse zu übernehmen. Sie erhalten damit die Möglichkeit, auf dem Weg zu kontinuierlicher und nachhaltiger Prozessqualität voranzukommen.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135419/19272" target="_top" id="2135419">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135419/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Jetzt herunterladen!
 
 Wie können Sie die Vielzahl von Datenpunkten, die von diesen Betriebssystemen generiert werden, kostengünstig und einfach in eine umfassende, verständliche und benutzerfreundliche End-to-End-Ansicht der Prozessausführung konvertieren? Herkömmliche Business-Intelligence-Tools bieten zwar umfassende Informationen, jedoch keine diagnostischen Analysen, die dem geschäftlichen Nutzer detailliert beschreiben, was in Bezug auf die Prozesse in den verschiedenen Geschäftsbereichen, Regionen oder IT-Systemen geschieht.
 
 ABBYY Timeline löst diese Herausforderung mit einem interaktiven Modell – einem Digitalen Zwilling für Prozesse.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
-### Die eigenen Geschäftsprozesse zu verstehen, ist nun einfacher! Laden Sie unsere Broschüre herunter, um mehr zu erfahren.
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1498635">
+					<video width="320" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+### Die eigenen Geschäftsprozesse zu verstehen, ist nun einfacher! Laden Sie unsere Broschüre herunter, um mehr zu erfahren.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Danke für Ihr Interesse an ABBYY.
 
 [Datenblatt lesen](https://digital.abbyy.com/hubfs/documents/content/datasheet-rise-of-the-process-digital-twin-de.pdf "Datenblatt lesen") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #### Haben Sie Fragen? [Kontaktieren Sie uns.](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

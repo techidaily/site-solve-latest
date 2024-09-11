@@ -1,21 +1,69 @@
 ---
 title: 51%% Der Deutschen Unternehmen Zitieren Ein Fehlendes Prozessverständnis Als Hauptgrund Für RPA-Fehlschläge - Expertenwissen Von ABBYY
-date: 2024-08-25T23:31:46.119Z
-updated: 2024-08-26T23:31:46.119Z
+date: 2024-09-10T10:04:25.329Z
+updated: 2024-09-11T10:04:25.329Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/75afd5a2790c3528915ac28a66faf57312a6eb60abbc500be807cdf0c4c1fe06.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 51% Der Deutschen Unternehmen Zitieren Ein Fehlendes Prozessverständnis Als Hauptgrund Für RPA-Fehlschläge - Expertenwissen Von ABBYY
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## 61% deutscher Unternehmen nennen fehlendes Prozessverständnis als Grund für RPA-Flops
 
 13\. Mai 2020
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### _Eine globale Studie von ABBYY zeigt, auf welchem Stand Unternehmen in Sachen RPA und Process Mining im Jahr 2020 sind_
 
@@ -80,9 +128,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://facebook-video-content.techidaily.com/new-adaptive-strategies-for-successful-content-on-new-fb-algorithm/"><u>[New] Adaptive Strategies for Successful Content on New FB Algorithm</u></a></li>

@@ -1,21 +1,63 @@
 ---
 title: ABBEYY Survey Finds Over 40 Working Days a Year Used by UK Staff in Non-Automatable Jobs – A Call to Embrace Robotic Efficiency
-date: 2024-08-25T23:32:23.386Z
-updated: 2024-08-26T23:32:23.386Z
+date: 2024-09-10T10:04:25.935Z
+updated: 2024-09-11T10:04:25.935Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a80aac0357f3c4788226453d272b3a23130ff4b40d591496be1b3a2b61ca7796.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ABBEYY Survey Finds Over 40 Working Days a Year Used by UK Staff in Non-Automatable Jobs – A Call to Embrace Robotic Efficiency
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## UK employees waste over 40 working days a year each on tasks that could be automated by robots, according to new ABBYY survey
 
 December 02, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 * _A quarter wanted to quit their job during the pandemic due to frustrating processes_
 * _Fewer than 2/3 of businesses started using new technologies since COVID-19 hit_
@@ -54,6 +96,26 @@ _“Not only do bad processes make your employees’ work harder – far from id
 
 ![UK employees waste over 40 working days a year each on tasks that could be automated by robots, according to new ABBYY survey](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 **Methodology**
 
 The COVID-19 Technology and Business Process Survey was conducted by Opinium Research in November 2020 and sponsored by ABBYY. It surveyed 4,000 office workers across the UK, US, France, and Germany – 1,000 in each country – on the impact the COVID-19 pandemic had on their working practices, the challenges they faced, and the role of automation technologies in their day-to-day work.
@@ -86,9 +148,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://visual-screen-recording.techidaily.com/new-elite-10-survival-skirmishes/"><u>[New] Elite 10 Survival Skirmishes</u></a></li>

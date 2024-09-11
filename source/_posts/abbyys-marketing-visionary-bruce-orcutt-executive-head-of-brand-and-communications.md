@@ -1,19 +1,61 @@
 ---
 title: ABBYY's Marketing Visionary - Bruce Orcutt, Executive Head of Brand & Communications
-date: 2024-08-25T23:31:48.833Z
-updated: 2024-08-26T23:31:48.833Z
+date: 2024-09-10T10:04:25.372Z
+updated: 2024-09-11T10:04:25.372Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a770835b076eb6b9f15ef9eaa24a0d7865dfb16a5caaa3e52196c91037b09546.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ABBYY's Marketing Visionary - Bruce Orcutt, Executive Head of Brand & Communications
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Bruce Orcutt
 
 Chief Marketing Officer
 
 ![Bruce Orcutt](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/management/headshots/cards-headshots/1486x836-bruce-orcutt.jpg?h=836&iar=0&w=1486)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Bruce Orcutt is a passionate marketing and leadership executive focused on driving market growth and awareness in digital transformation and intelligent automation. 
 
@@ -22,6 +64,20 @@ As Chief Marketing Officer at ABBYY, Orcutt leads the global product strategy, g
 Orcutt was previously SVP of Product Marketing where he led the product strategy transforming ABBYY from an OCR technology vendor to ISVs to the leading provider of intelligent document processing (IDP) for global enterprises. He helped conceive, develop, and launch two new SaaS platforms for IDP and process mining with vertical focus areas in financial services, insurance, healthcare, government, and transportation and logistics. Additionally, Orcutt helped migrate the company and portfolio to subscription and recurring revenue models. 
 
 He is a thought leader with market domain expertise in AI, machine learning, process and task mining, document and data capture, digital transformation, intelligent document processing, and hyperautomation. He also has deep experience with mobile platforms, customer experience, and has a passion for customer excellence. 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Ready to speak with an expert?
 
@@ -42,10 +98,6 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=39694080&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/nbr/fire/Screenshot_1red_gb.jpg" border="0">Nero Burning ROM:
-The ultimate burning program for all your needs!</a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://some-techniques.techidaily.com/new-ideal-gaming-displays-top-5-ps5-edition/"><u>[New] Ideal Gaming Displays  Top 5 (PS5 Edition)</u></a></li>

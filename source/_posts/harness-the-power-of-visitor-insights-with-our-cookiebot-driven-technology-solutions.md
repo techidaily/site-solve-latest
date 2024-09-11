@@ -1,15 +1,43 @@
 ---
 title: Harness the Power of Visitor Insights with Our Cookiebot-Driven Technology Solutions
-date: 2024-08-25T23:31:25.547Z
-updated: 2024-08-26T23:31:25.547Z
+date: 2024-09-10T10:04:25.011Z
+updated: 2024-09-11T10:04:25.011Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/969f33b117977e3c9183a386d2bdc9ab1274e9f63db8d891784a69dcdfd3c683.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134221/18498" target="_top" id="2134221">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134221" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134221/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Harness the Power of Visitor Insights with Our Cookiebot-Driven Technology Solutions
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## So, What Should We Do With Contract Analytics?
 
@@ -18,6 +46,20 @@ thumbnail: https://thmb.techidaily.com/969f33b117977e3c9183a386d2bdc9ab1274e9f63
 November 13, 2018
 
 ![What Should We Do With Contract Analytics?- ABBYY Blog Post #4 of 5 Content Analytics](https://static5.abbyy.com/abbyycommedia/25322/9787e_blog_content-analytics-blog-seriesblog_4.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 Now that we have looked into the power of Contract Analytics as well as the features that we need to make it truly deliver upon the promise of intelligent document processing, what can we do with it? We should probably start with the most critical pain points for General Counsel, Procurement and business unit leaders:
 
@@ -55,11 +97,39 @@ Companies need to extract all information in their contracts relating to perform
 
 ![Mike Simon Attorney](https://static1.abbyy.com/abbyycommedia/25501/21-mikesimon-198x198.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Michael Simon
 
 Michael Simon is the Principal of Seventh Samurai, an e-Discovery and Information Governance expert consulting firm. As a trial attorney in Chicago, he was an early innovator in using electronic evidence to win cases for his clients. He is an adjunct professor at Michigan State University College of Law (and formerly at Boston University School of Law), teaching classes in e-Discovery. He has advised a number of companies and government agencies on how to best mitigate the risks arising from their information while best optimizing value, and provides strategic consulting for companies in the analytics, security, privacy, and legal technology markets.
 
 Michael is a legal technology thought leader, having made over 100 presentations and written dozens of articles on e-Discovery and legal technology topics, including a book on Internet Law in 2002\. He received his J.D. from Loyola University Chicago School of Law, and his B.A. cum laude from Tufts University.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Like, share or repost
 
@@ -124,9 +194,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-a-comprehensible-guide-to-instagrams-latest-updates/"><u>[New] 2024 Approved  A Comprehensible Guide to Instagram's Latest Updates</u></a></li>

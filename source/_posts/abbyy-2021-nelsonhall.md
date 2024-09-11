@@ -1,21 +1,75 @@
 ---
 title: "ABBYYによる最新「プロセスマイニング」分析: 2021年での業界リード - NelsonHall調査報告"
-date: 2024-08-25T23:32:24.427Z
-updated: 2024-08-26T23:32:24.427Z
+date: 2024-09-10T10:04:25.949Z
+updated: 2024-09-11T10:04:25.949Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b119e381603d6bed9ecec925cda81333c3ae9fa13dd7e2286051886237daee19.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## ABBYYによる最新「プロセスマイニング」分析: 2021年での業界リード - NelsonHall調査報告
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977020">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY社、世界有数のアナリスト企業NelsonHall社の 「Process Discovery & Mining NEAT Assessment 2021」でリーダーの評価を獲得
 
 12月16日, 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139109/17108" target="_top" id="2139109">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139109" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139109/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ドキュメントデータとビジネスプロセスを完全に理解することで真のデジタルトランスフォーメーション（DX）を実現するABBYY社（本社：米国ノースカロライナ州、日本法人ABBYYジャパン株式会社、本社：神奈川県横浜市、代表取締役：小原洋）は、世界有数のアナリスト企業であるNelsonHall社の「Process Discovery & Mining NEAT Assessment 2021（2021年のプロセスディスカバリーとプロセスマイニングのNEATベンダー評価）」においてリーダーの評価を獲得したことを発表しました。デジタルオペレーションの変革を専門とするNelsonHall社は、戦略的ソーシングマネージャーが、多様な基準や事業状況でベンダーのパフォーマンスを評価し、プロセスマイニングの具体的な能力、デスクトッププロセス検出、プロセス変革を計画および推進する能力において最も優れたベンダーを見極められるようNEAT評価ツールを作成しています。
 
@@ -26,6 +80,26 @@ ABBYY社のCMOを務めるScott Opitzは、次のように述べています。
 _ABBYY社のCMOを務めるScott Opitzは、次のように述べています_
 
 _![](https://static1.abbyy.com/abbyycommedia/34891/pdm-neat-accelerate-process-change-final.png?width=848&height=848)_
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY社は、将来的な顧客の要件を満たすことができる点と、すぐに利益をもたらす能力の点で比較評価され、業界でトップグループに位置づけられました。主な評価ポイントは、提供する製品の成熟度、提供能力、顧客が得られる利益、顧客とのパートナーシップ、革新を進めるメカニズム、契約期間を通じて顧客のビジネスをどの程度サポートしているのかなどが挙げられています。
 
@@ -72,9 +146,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-precision-and-professionalism-a-vr-recording-handbook/"><u>[New] 2024 Approved  Precision and Professionalism  A VR Recording Handbook</u></a></li>

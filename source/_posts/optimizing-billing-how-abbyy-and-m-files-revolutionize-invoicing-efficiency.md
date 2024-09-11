@@ -1,7 +1,7 @@
 ---
 title: "Optimizing Billing: How ABBYY and M-Files Revolutionize Invoicing Efficiency"
-date: 2024-08-25T23:31:35.270Z
-updated: 2024-08-26T23:31:35.270Z
+date: 2024-09-10T10:04:25.143Z
+updated: 2024-09-11T10:04:25.143Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/97d52aeba0c3812671b16d9ad71aaf02069e7e610c93642b0ee7efd4388d9316.jpg
@@ -9,7 +9,35 @@ thumbnail: https://thmb.techidaily.com/97d52aeba0c3812671b16d9ad71aaf02069e7e610
 
 ## Optimizing Billing: How ABBYY and M-Files Revolutionize Invoicing Efficiency
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120863/26400?prodsku=Mercury" target="_top" id="2120863">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120863/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYY | M-Files 
 
@@ -23,6 +51,20 @@ FlexiCaptureとM-Filesのインテリジェント情報マネジメントプラ�
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/products/vantage/vantage_overview_1.jpg?h=716&iar=0&w=1272)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ソリューションブリーフ 
 
 #### 買掛金の請求書の自動化ソリューション 
@@ -32,6 +74,20 @@ ABBYY FlexiCapture for InvoicesとM-Filesのプラットフォームの連携概
 [ソリューションブリーフのダウンロード](https://static3.abbyy.com/abbyycommedia/34365/solutionbrief-mfiles-abbyy-integrated-solutions-en.pdf)
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/solutions/digital-document-archiving/drawer-image.jpg?h=392&iar=0&w=696)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### ABBYYとM-Filesがどう連携動作するか 
 
@@ -57,9 +113,26 @@ M-Filesシステムは、支払い承認業務のワークフローを統制し�
 
 支払い業務プロセスを行うために、承認された請求書を財務経理部に送ります。
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<span id="1982456">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## 連携するメリット 
 
 ##### より精密な正確性の実現 
@@ -74,9 +147,6 @@ ABBYYを導入し、データキャプチャやデータの抽出を自動化す
 
 あらゆるシステムやレポジトリに蓄積された情報にアクセスし、活用できるようにするために、M-Filesはコンテキスト対応のエクスペリエンスを提供することで、サイロ化を防ぎます。ユーザーは、定着した従来のワークフローを止めたり、ユーザーエクスペリエンスを妨げたりすることなく、どこからでもコンテンツに簡単かつ安全にアクセスすることができます。
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## お客様の声 
 
 ABBYYとM-Files間で結ばれたパートナーシップによって、私たちは、個別に分かれているテクノロジーを最大限に活用できるようになりました。これにより、私たちの請求書処理プロセスが最適化され、サプライヤーにより良いサービスが提供できるようになったのです。私たちはABBYYと M-Filesのソリューションを使って、月に何千もの請求書を処理しています。また、業務コストを大幅に削減することもできました。これは、業務の処理時間が短縮され、ユーザーフレンドリーな請求書の検索や取り出しが作業を軽減してくれるようになったためです。 
@@ -91,12 +161,20 @@ ABBYY FlexiCapture for InvoicesとM-Filesを組み合わせることで、魅力
 
 ![](https://content.abbyy.com/-/media/feature/basecomponents/clients/m-files.png?h=40&iar=0&w=120)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2128844/7443" target="_top" id="2128844">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128844" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128844/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
+
+
+
+
 ### 専門家に相談してみませんか？
 
 [デモを予約する](https://tools.techidaily.com/abbyy/products/)[お問い合わせ](https://tools.techidaily.com/abbyy/products/)

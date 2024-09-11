@@ -1,7 +1,7 @@
 ---
 title: "Leading the Charge in AI-Driven Document Management: Abbyy Takes First Place, 2021 Edition"
-date: 2024-08-25T23:32:14.842Z
-updated: 2024-08-26T23:32:14.842Z
+date: 2024-09-10T10:04:25.793Z
+updated: 2024-09-11T10:04:25.793Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1a1e5c2753d0c8947ba30db3ebb53725cfb2d03191ed52125f4aa37e29665125.jpg
@@ -11,9 +11,63 @@ thumbnail: https://thmb.techidaily.com/1a1e5c2753d0c8947ba30db3ebb53725cfb2d0319
 
 Third-party content
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983575">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983575.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983575">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983575.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983575%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983575/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Quadrant Knowledge Solutions SPARK Matrix: Intelligent Document Processing (IDP), 2021
 
 ![ABBYY is Leader in SPARK Matrix: Intelligent Document Processing (IDP), 2021](https://static1.abbyy.com/abbyycommedia/34967/abbyy-leader-badge-qks-idp-spark-matrix-2021.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### ABBYY named 2021 technology leader of Intelligent Document Processing (IDP)
 
@@ -25,49 +79,66 @@ ABBYY’s out-of-the-box ML-based pre-trained document skills and pre-built conn
 
 _Pranjal Singh, Analyst at Quadrant Knowledge Solutions_
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Download it now!
 
 **![Quadrant Knowledge Solutions SPARK Matrix : IDP 2021](https://static1.abbyy.com/abbyycommedia/34968/qks-idp-spark-matrix-2021.png)**
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 IDP solutions help organizations automate and streamline the process of capturing, classifying, and extracting relevant information from structured, semi-structured, and unstructured documents for further processing. Driven by the dynamics of the COVID-19 pandemic, IDP technologies are continuously evolving to offer more advanced data processing capabilities.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
-### Request information
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=33729450&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+### Request information
+
 ## Thank you for your interest in ABBYY.
 
 [Read the report](https://digital.abbyy.com/hubfs/documents/content/analystreport-intelligentdocumentprocessing-quadrantknowledgesolutions-en.pdf "Read the report") 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### You might also be interested in...
 
 [![ISG Provider Lens™ Intelligent Automation - IDP, 2021](https://static2.abbyy.com/abbyycommedia/35251/145-ia-solutionsandservices-idp-360x232.jpg) ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report See report](https://digital.abbyy.com/hubfs/documents/content/analystreport-intelligent-document-processing-isg-provider-lens-en.pdf "ABBYY Named Leader of IDP in the 2021 ISG Provider Lens™ Intelligent Automation – Solutions and Services Report ")[![ABBYY Vantage IDP](https://static4.abbyy.com/abbyycommedia/34808/vantage-new-product-video.jpg) ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce Learn more](https://www.abbyy.com/vantage/ "ABBYY Vantage: Intelligent Document Processing Platform for the Digital Workforce")[![Intelligent Document Processing | ABBYY Blog](https://static1.abbyy.com/abbyycommedia/34870/ap-content-2-848x444.jpg) What Is Intelligent Document Processing (IDP), and How Does It Work? Read article](https://www.abbyy.com/blog/intelligent-document-processing/ "What Is Intelligent Document Processing (IDP), and How Does It Work?") 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4737285&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/b2f83c409ce63012229fb9cd465bdcfe/products/copy_reporting_system.png" border="0">  KoolReport Pro  is an advanced solution for creating data reports and dashboards in PHP. Equipped with all  extended packages , KoolReport Pro is able to connect to various datasources, perform advanced data analysis, construct stunning charts and graphs and export your beautiful work to PDF, Excel, JPG or other formats. Plus, it includes powerful built-in reports such as pivot report and drill-down report which will save your time in building ones. 
-
- It will help you to write dynamic data reports easily, to construct intuitive dashboards or to build a whole business intelligence cockpit. 
-
-  KoolReport Pro  package goes with Full Source Code, Royal Free, ONE (1) Year Priority Support, ONE (1) Year Free Upgrade and 30-Days Money Back Guarantee. 
-
-  Developer License  allows  Single Developer  to create Unlimited Reports, deploy on Unlimited Servers and able deliver the work to Unlimited Clients. </a>
-<!-- affiliate ads end -->
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
 #### Get your copy by filling in the form.

@@ -1,21 +1,63 @@
 ---
 title: "Instant Accessibility: How TextGrabber Revolutionizes Android's On-The-Fly Text Interaction"
-date: 2024-08-25T23:32:10.548Z
-updated: 2024-08-26T23:32:10.548Z
+date: 2024-09-10T10:04:25.730Z
+updated: 2024-09-11T10:04:25.730Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/80de444cb408ef81f4728e2850b723591d8016d7f4cd61445fe263111407c51f.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Instant Accessibility: How TextGrabber Revolutionizes Android's On-The-Fly Text Interaction
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## TextGrabber for Android Now Captures Text in Real Time and Makes it Actionable
 
 December 15, 2017
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY®, a global provider of intelligent capture solutions to improve business outcomes, today announced the release of TextGrabber 2.0 for Android with Real-Time Recognition and a completely redesigned interface. Now TextGrabber for both iOS and Android transforms text within a camera viewer into digital data in real time, to help users capture, share, translate, and use text, links, phone numbers, addresses, promo codes, and other printed information on the go. This new capability works in both online and offline modes.
 
@@ -74,9 +116,6 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-sure.techidaily.com/024-approved-easy-paths-to-profitable-youtube-business-channels-top-10-list/"><u>[New] 2024 Approved  Easy Paths to Profitable YouTube Business Channels, Top 10 List</u></a></li>

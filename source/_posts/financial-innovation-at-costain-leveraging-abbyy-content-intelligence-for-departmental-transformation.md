@@ -1,7 +1,7 @@
 ---
 title: "Financial Innovation at Costain: Leveraging ABBYY Content Intelligence for Departmental Transformation"
-date: 2024-08-25T23:31:23.437Z
-updated: 2024-08-26T23:31:23.437Z
+date: 2024-09-10T10:04:24.970Z
+updated: 2024-09-11T10:04:24.970Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/eaa498618a30b7449a5127779e22901025842c318bde80345b630595fb88d747.jpg
@@ -19,15 +19,57 @@ BPO and Shared Services | Document Processing
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Costain Transforms Its Finance Department Using ABBYY Intelligent Document Processing
 
 BPO and Shared Services | Document Processing 
 
 [![Costain Transforms Its Finance Department Using ABBYY Content Intelligence](https://static5.abbyy.com/abbyycommedia/37723/costain-case-study-intelligent-document-processing-en_tn_556x303.jpg)](https://www.youtube.com/watch?v=w708adcpE-A) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 #### Customer Overview
 
 ![Costain Group PLC](https://static1.abbyy.com/abbyycommedia/25139/costain-logo.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 | Name         | Costain Group PLC                           |
 | ------------ | ------------------------------------------- |
@@ -81,13 +123,55 @@ Integration of ABBYY Intelligent Document Processing platform
 
 [![ABBYY FlexiCapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Learn more about ABBYY Vantage](https://static2.abbyy.com/abbyycommedia/24337/mailroom_automation_360x162.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![Download the PDF version](https://static5.abbyy.com/abbyycommedia/37726/costain-case-study-intelligent-document-processing-en_tn_360x162.jpg)](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") [PDF Version](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136627/26400" target="_top" id="2136627">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136627" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136627/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [Read the document](https://static3.abbyy.com/abbyycommedia/37648/costain-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
@@ -95,9 +179,6 @@ Integration of ABBYY Intelligent Document Processing platform
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://ancheer.sjv.io/c/5597632/1657301/17326" target="_top" id="1657301"><img src="//a.impactradius-go.com/display-ad/17326-1657301" border="0" alt="" width="1920" height="933"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657301/17326" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.

@@ -1,7 +1,7 @@
 ---
 title: Leveraging Cookiebot Technology for Optimized Site Personalization and Marketing
-date: 2024-09-05T11:19:26.518Z
-updated: 2024-09-06T11:19:26.518Z
+date: 2024-09-10T10:04:24.501Z
+updated: 2024-09-11T10:04:24.501Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092ccbbf441a17ff63d6863be1.png
@@ -11,18 +11,6 @@ thumbnail: https://thmb.techidaily.com/d4527039f6a1a287d2df17fa899a5ac8403841092
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Low-Code / No-Code Intelligent Document Processing for Transportation & Logistics
 
 ###### Reginald J. Twigg
@@ -31,24 +19,46 @@ January 05, 2022
 
 ![](https://static1.abbyy.com/abbyycommedia/35071/skills-for-transportation2-cover-848x444.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135413/19272" target="_top" id="2135413">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135413" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135413/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 The most newsworthy topic lately has been on the supply chain disruptions—shortages specifically. Every consumer and business now experiences supply chain disruption in the form of shortages and rapid inflation. Scarcity directly drives up the cost of goods, and Transportation and Logistics play a key role in this conversation. While many shortages come from interruption of production, COVID being the most notable cause, the issue is compounded by hard-coded document-dependent processes that don’t adapt quickly enough to onboard new suppliers or tackle changes in shipping requirements.
 
 Agility in document processing matters now more than ever to shippers as a vital link in the supply chain. Eighty percent of business processes are document-driven, which can be the weakest link in a supply chain. Yet, many shippers don’t know where to begin this automation journey in a way that gets the quickest wins.
 
 **[Get started with our checklist of Document Skills for Transportation & Logistics in the ABBYY Marketplace.](https://static3.abbyy.com/abbyycommedia/34326/checklist-transportation-documentskillsmarketplace-en.pdf?itm%5Fsource=corpblog-en-skills-for-transportation-and-logistics)**
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## The difference low-code / no-code Intelligent Document Processing (IDP) solutions make for shippers
 
 Most shippers have some experience with traditional automation approaches–most notably [robotic process automation](https://tools.techidaily.com/abbyy/products/) (RPA) with basic optical character recognition (OCR) technologies. These tools have enabled automation of rote tasks and rote document data extraction and validation in stable processes. But, change has become a fact of shipping operations in today’s normal of supply chain disruption, and traditional OCR solutions are no longer enough. They focus only on data field recognition, extraction, and validation, and accomplish this most often through hard-coded instructions from applications and IT systems.
@@ -61,28 +71,50 @@ Named entity recognition (NER) offers maximum flexibility in managing the high v
 
 ![Automation in transportation and logistics](https://static1.abbyy.com/abbyycommedia/35070/skills-for-transportation2-content-848x444.jpg)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137202/26400" target="_top" id="2137202">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137202" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137202/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Low-code / no-code solutions take NER flexibility even further by removing the burden of having to lay down a complex application infrastructure for IT to implement and maintain. Pre-trained low-code / no-code “[document skills](https://tools.techidaily.com/abbyy/products/)” (pre-built readings of known document types–bills of lading, for example) can be plugged into existing applications and be up and running in hours or minutes versus their traditional OCR counterparts.
 
 Since many shippers do not have the IT budget to add yet another big system application, low-code / no-code IDP solutions can be implemented directly by your operations group, on the front line where agility is most needed.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098704/14409" target="_top" id="2098704">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098704" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098704/14409" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Automating logistics operations with pre-built document skills
 
 What if shippers could have ready-made solutions for these critical documents–solutions with a deep understanding of both the operational processes the documents enable and an understanding of these documents as highly variable, constantly changing entities?
 
 ![ABBYY Vantage](https://static1.abbyy.com/abbyycommedia/32490/vantage-scheme-848.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 These Intelligent Document Processing solutions are now available with [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/). With a low-code / no-code library of pre-built freight and shipping documents, Vantage empowers shippers and logistics providers of any size to meet their most difficult document processing challenges using their operational knowledge, instead of a major IT investment.
 
 Available now in the [ABBYY Vantage Marketplace](https://tools.techidaily.com/abbyy/products/) are the essential document skills shippers need, including: 
@@ -98,6 +130,26 @@ Available now in the [ABBYY Vantage Marketplace](https://tools.techidaily.com/ab
 * [Dangerous Good Declaration](https://tools.techidaily.com/abbyy/products/)
 
 Vantage pre-built containerized document [skills for Transportation & Logistics](https://tools.techidaily.com/abbyy/products/) deliver the adaptability, straight-through processing automation, and lowest-cost solutions needed to respond to ever tighter SLAs in a world where supply chain disruptions have become normal business. Now, automation is in reach of shippers with the most constrained budgets.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Looking to optimize your Transportation & Logistics operations for rapid change?
 
@@ -117,13 +169,27 @@ Learn more about how ABBYY is helping [Transportation and Logistics providers](h
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Reginald J. Twigg
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Like, share or repost
 

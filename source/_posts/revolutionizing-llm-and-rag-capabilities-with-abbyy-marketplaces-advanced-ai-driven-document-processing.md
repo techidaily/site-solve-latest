@@ -1,21 +1,75 @@
 ---
 title: Revolutionizing LLM and Rag Capabilities with ABBYY Marketplace's Advanced AI-Driven Document Processing
-date: 2024-08-25T23:32:56.606Z
-updated: 2024-08-26T23:32:56.606Z
+date: 2024-09-10T10:04:26.526Z
+updated: 2024-09-11T10:04:26.526Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7ef77a5fdd8ceeee3dcb3523.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Revolutionizing LLM and Rag Capabilities with ABBYY Marketplace's Advanced AI-Driven Document Processing
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## ABBYYs neuer Marketplace bietet KI-Modelle, die den Datenhunger effektiver LLMs stillen
 
 Mai 15, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/abbyy-redesigned-marketplace-preview.jpg?h=418&iar=0&w=743)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ##### Umfangreiche KI-Modellen-Bibliothek erleichtert die Implementierung, beschleunigt die Time-to-Value und unterstützt bei der Nutzung von Retrieval-Augmented Generation (RAG) mit ABBYY Vantage
 
@@ -46,6 +100,20 @@ ABBYY Vantage ermöglicht eine effiziente und genaue Extraktion, Verarbeitung un
 
 [Besuchen Sie den ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), um Zugang zu seiner Bibliothek mit vortrainierten KI-Skills , Konnektoren und Assets von ABBYY und seinem breiten Partnernetzwerk für die intelligente Automatisierung von Dokumentenprozessen zu erhalten. Weitere Informationen über ABBYY KI-Lösungen finden Sie unter [www.abbyy.com](https://tools.techidaily.com/abbyy/products/).
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Über ABBYY
 
 ABBYY macht Ihre Informationen nutzbar. Unsere Lösungen kombinieren Innovation und Erfahrung, um Daten aus geschäftskritischen Dokumenten in über 200 Sprachen und in Echtzeit in intelligente, umsetzbare Ergebnisse umzuwandeln. Wir helfen mehr als 10.000 Unternehmen weltweit, darunter vielen der Fortune-500-Unternehmen, dort etwas zu bewegen, wo es am wichtigsten ist: Bei der Customer Experience, der operativen Exzellenz und in puncto Wettbewerbsvorteile. ABBYY ist ein globales Unternehmen mit Sitz in Milpitas, Kalifornien (USA) und Niederlassungen in 14 Ländern und [offizieller Intelligent Automation Partner des Arsenal Women Football Club](https://tools.techidaily.com/abbyy/products/). Weitere Informationen finden Sie unter <https://www.abbyy.com/de> und folgen Sie uns auf [LinkedIn](https://www.linkedin.com/company/abbyy), [Twitter](https://twitter.com/ABBYY%5FSoftware) und [Facebook](https://www.facebook.com/ABBYYsoft).
@@ -69,9 +137,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://some-techniques.techidaily.com/new-fresh-topics-eliciting-engagement-in-audio-formats/"><u>[New] Fresh Topics  Eliciting Engagement in Audio Formats</u></a></li>

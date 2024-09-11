@@ -1,21 +1,63 @@
 ---
 title: Automatisierte Dokumentenverarbeitung Mit ABBYY - Beschleunigung Der Geschäftsprozess-Digitalisierung
-date: 2024-08-25T23:32:30.345Z
-updated: 2024-08-26T23:32:30.345Z
+date: 2024-09-10T10:04:26.032Z
+updated: 2024-09-11T10:04:26.032Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f408d1e600338fdfbc4fe3abf110c58fed31529d9f9f53c6cd72af0ec21a5e5.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Automatisierte Dokumentenverarbeitung Mit ABBYY - Beschleunigung Der Geschäftsprozess-Digitalisierung
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Intelligente Dokumentenerfassung von ABBYY beschleunigt digitale Transformation von Geschäftsprozessen
 
 19\. Dezember 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, hat heute die Verfügbarkeit einer neuen Version von [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) auf dem deutschsprachigen Markt bekanntgegeben. Die hochgradig skalierbare und universelle Enterprise-Capture-Plattform klassifiziert schriftliche Kundenkommunikation sowie Dokumente aus vielfältigen Geschäftsprozessen, extrahiert automatisch relevante Daten, verifiziert diese und leitet sie an die entsprechenden Workflows weiter. Durch den Einsatz einer Reihe automatisierter Techniken, u.a. zum maschinellen Lernen, löst FlexiCapture die lange vorhandene Komplexität in der Datenerfassungs- und Datenverarbeitungslandschaft weiter auf und definiert diesen Softwarebereich neu.
 
@@ -80,9 +122,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://youtube-tips.techidaily.com/024-approved-boosting-your-youtube-earnings-strategies-for-monetizing-short-videos/"><u>[New] 2024 Approved  Boosting Your YouTube Earnings  Strategies for Monetizing Short Videos</u></a></li>

@@ -1,7 +1,7 @@
 ---
 title: "Comprehensive Business Strategy: Leveraging Artific"
-date: 2024-08-25T23:32:35.637Z
-updated: 2024-08-26T23:32:35.637Z
+date: 2024-09-10T10:04:26.141Z
+updated: 2024-09-11T10:04:26.141Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9f23cf12f736b9e556e25d78842b81c2a897e31ac3cc784dccd607926f3ba0ca.jpg
@@ -45,20 +45,65 @@ If talent is defined as natural ability, and skill is cultivated through trainin
 
 Attempting to drive efficiency and innovation purely from a technological perspective will have limited returns when compared to including professionals that can interpret the implications of data, apply them to business situations, and make decisions with respect to timing, market factors, and other variables. Designing tools that are accessible to those beyond the IT department enables this inclusivity of broader perspectives. Low-code / no-code intelligent automation solutions with intuitive and visually oriented interfaces help democratize data and technology, enabling organizations to drive value more briskly and effectively.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Intelligent Document Processing in Financial Services: Use Cases
 
 eBook
 
 [Learn more](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Keeping pace with regulation: Metering societal and ethical impacts of innovation
 
 Environmental and social governance (ESG) is not only an ethical responsibility of organizations, but also a legally mandated one, particularly as it relates to AI use, data ownership, and other privacy-related issues. While the c-suite might initially see this as added liability, the increasing maturity of AI is yielding standard industry practices with regulatory compliance in mind.
 
 Large sets of enterprises are increasingly adopting intelligent automation frameworks that reflect a commitment to preventing or reducing negative environmental and social consequences of innovation. Moreover, most regulatory policies related to AI are still in the process of being formalized and are not yet enforceable, meaning enterprises have time to ensure that their applications of AI are entirely ethical and compliant. One strategy for ensuring compliance is championing an advocate for ethical artificial intelligence within your organization. ABBYY, for example, is supported by [AI Ethics Evangelist Andrew Pery](https://tools.techidaily.com/abbyy/products/), who is an expert in trustworthy AI and AI bias. Pery helps customers and clients understand how data is being shared, what it’s used for, and how ABBYY ensures transparency, fairness, and privacy. Providing a platform to professionals in this facet of artificial intelligence conveys to stakeholders that ethics and responsibility are taken seriously.
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### Automating with intention: Understanding your organization’s needs
 
@@ -68,9 +113,6 @@ Every process, enterprise, and industry have their own nuances. It’s important
 
 Using an AI-enhanced tool like process intelligence gives enterprises the visibility they need to cultivate this thorough understanding of their operations. From there, decision makers can make informed decisions and test process improvements before implementation, reducing the risk of wasting innovation budget on a failed automation attempt.
 
-<!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958374/18409" target="_top" id="1958374"><img src="//a.impactradius-go.com/display-ad/18409-1958374" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1958374/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Maximizing your investment: Best practices
 
 Making a sustainable investment in automation requires thorough understanding of customer segments. Consider the expectations of every stakeholder and every office in an enterprise, as well as the deliverables, objectives, and other points of interest for every office. Taking input from all c-levels establishes more sensible automation, and thus supports sustainability.
@@ -83,9 +125,20 @@ It is also imperative to use the right framework consistently across all automat
 
 Communicating these priorities and establishing a clear roadmap towards operational excellence through intelligent automation is an essential step to garnering executive support for such initiatives.
 
-<!-- affiliate ads begin -->
 
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Tips for driving executive buy-in
 
 There are many factors to consider when considering or proposing an automation strategy, but IT professionals can identify certain key aspects when pursuing executive buy-in:
@@ -116,9 +169,6 @@ He is a thought leader with market domain expertise in AI, machine learning, pro
 
 Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1">Power Tools add-on for Google Sheets, 12-month subscription</a>
-<!-- affiliate ads end -->
 ### Additional Insights:
 
 1 / 3 
@@ -137,9 +187,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Highs and Lows of the Intelligent Automation Journey](https://static3.abbyy.com/abbyycommedia/38066/ds-191_customer-point-of-view_tn_848x444-1.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Highs and Lows of the Intelligent Automation Journey**](https://tools.techidaily.com/abbyy/products/)
@@ -149,6 +210,26 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![ICYMI: 5 Reasons Why Process Intelligence Is Replacing Process Mining—Our Conversation with Doculabs](https://static1.abbyy.com/abbyycommedia/38052/ds-191_5-reasons-why_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="701707">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/701707.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/7443-701707">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/701707.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fappsumo.8odi.net%2Fc%2F5597632%2F701707%2F7443'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/701707/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -160,9 +241,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Are Large Language Models (LLMs) the Future?](https://static2.abbyy.com/abbyycommedia/37511/are-llms-the-future_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=22741618&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.diskpart.com/resource/images/index/dp-index-img-banner-people@2x.png" border="0">Easy and Safe Partition Software & Hard Disk Manager</a>
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Are Large Language Models (LLMs) the Future?**](https://tools.techidaily.com/abbyy/products/)
@@ -172,6 +250,26 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![The Gap Is Closing Between AI Innovation and Time-to-Value](https://static4.abbyy.com/abbyycommedia/37512/executive-insight_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -193,6 +291,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How Process Mining Improves Business Processes and Prevents Cyber Threats](https://static3.abbyy.com/abbyycommedia/37507/howprocessminingpreventscyberthreats_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How Process Mining Improves Business Processes and Prevents Cyber Threats**](https://tools.techidaily.com/abbyy/products/)
@@ -202,6 +314,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [![Customer Point of View: Process Mining Reveals $6 Million in Savings](https://static2.abbyy.com/abbyycommedia/37509/leading-financial-institution-saves-millions_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2120861/26400?prodsku=Saturn" target="_top" id="2120861">
+  <img src="//a.impactradius-go.com/display-ad/26400-2120861" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120861/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [](https://tools.techidaily.com/abbyy/products/) 
 
@@ -213,9 +339,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific](https://static4.abbyy.com/abbyycommedia/37508/idp-trends-and-outcomes-report_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2086436/19576" target="_top" id="2086436"><img src="//a.impactradius-go.com/display-ad/19576-2086436" border="0" alt="" width="1500" height="400"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2086436/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Analysis Reveals Top Use Cases for IDP in US, Europe, and Asia-Pacific**](https://tools.techidaily.com/abbyy/products/)
@@ -236,9 +359,6 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![How AI Can Help Government Agencies Win at Total Experience (TX)](https://static5.abbyy.com/abbyycommedia/37014/government_1214434168_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3851691&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.aiseesoft.com/avangate/30p/banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**How AI Can Help Government Agencies Win at Total Experience (TX)**](https://tools.techidaily.com/abbyy/products/)
@@ -259,6 +379,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Document AI Creating a Safer World](https://static1.abbyy.com/abbyycommedia/37016/saferworld_863497498_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Document AI Creating a Safer World**](https://tools.techidaily.com/abbyy/products/)
@@ -269,9 +403,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Customer Point of View: Approach Automation Step by Step](https://static4.abbyy.com/abbyycommedia/37013/fte_613347676_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254549&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/8_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
+<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Customer Point of View: Approach Automation Step by Step**](https://tools.techidaily.com/abbyy/products/)
@@ -282,9 +427,20 @@ Connect with Bruce on [LinkedIn](https://www.linkedin.com/in/borcutt/).
 
 [![Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them](https://static1.abbyy.com/abbyycommedia/37015/onboarding_875247286_848x444.jpg)](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 [](https://tools.techidaily.com/abbyy/products/) 
 
 [**Top Reasons Why Customers Abandon Your Onboarding Processes...and How to Fix Them**](https://tools.techidaily.com/abbyy/products/)

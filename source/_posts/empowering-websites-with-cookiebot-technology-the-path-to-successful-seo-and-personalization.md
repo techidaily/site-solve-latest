@@ -1,18 +1,12 @@
 ---
 title: "Empowering Websites with Cookiebot Technology: The Path to Successful SEO and Personalization"
-date: 2024-09-05T11:19:26.269Z
-updated: 2024-09-06T11:19:26.269Z
+date: 2024-09-10T10:04:24.255Z
+updated: 2024-09-11T10:04:24.255Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046dfa0556ebd9b84053509fd9.png
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Empowering Websites with Cookiebot Technology: The Path to Successful SEO and Personalization
 
 [全てのブログ](https://tools.techidaily.com/abbyy/products/)
@@ -25,12 +19,6 @@ thumbnail: https://thmb.techidaily.com/dd7a824e4ab8b6d6473fb0116a606a013dd12f046
 
 ![帳票処理ソリューション – AI自動学習による文書仕分け・データ抽出](https://static1.abbyy.com/abbyycommedia/29891/848x444-px-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持つ帳票でもOCRし、データ抽出可能（第1回ブログ）](https://tools.techidaily.com/abbyy/products/)」が挙げられますが、一方で比較的シンプルな帳票については難しい設定無しに文書仕分け・データ抽出が可能です。これを実現可能にした技術が、AI自動学習機能であり、さらにそれを請求書について汎用化した製品が [ABBYY FlexiCapture for Invoices](https://tools.techidaily.com/abbyy/products/)となります。
 
 「帳票処理ソリューション」シリーズ第3回は、ABBYY FlexiCaptureのAI自動学習機能について紹介いたします。
@@ -38,48 +26,46 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 まず、AI自動学習機能を用いた文書仕分けについてご紹介いたします。  
 文書仕分けの設定・確認は次の4ステップのみで、非常に簡単に実行可能です。
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### 1\. 文書定義作成
 
 仕分け結果の格納先となる文書定義名を作成します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30089/pic-1.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2128843/7443" target="_top" id="2128843">
+  <img src="//a.impactradius-go.com/display-ad/7443-2128843" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128843/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123465/16836" target="_top" id="2123465">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123465" border="0" alt="https://techidaily.com" width="80" height="31"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123465/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ### 2\. 仕分け用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションで、仕分け用トレーニングバッチを選択し、新規バッチを作成します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30090/pic-2.png)
 
-<!-- affiliate ads begin -->
-<span id="1770526">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770526.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770526">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770526.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770526%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770526/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 作成したバッチに、学習用のサンプルイメージを読み込みます。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30091/pic-3.png)
@@ -88,37 +74,81 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30092/pic-4.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118321/7443" target="_top" id="2118321">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118321" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118321/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 サンプル画像ごとに「学習用」「テスト用」を選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30093/pic-5.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2135474/26400" target="_top" id="2135474">
-  <img src="//a.impactradius-go.com/display-ad/26400-2135474" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135474/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014859/22899" target="_top" id="2014859">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014859" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014859/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
+
+
+
 ### 3\. 仕分けトレーニング（仕分け学習）とトレーニング結果の設定
 
 ステップ2で仕分けトレーニングの準備が整いましたので、学習ボタンをクリックし、トレーニングを実行、結果を確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30094/pic-6.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 結果に問題なければ、トレーニング結果を認識処理時に適用する設定を実施します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30095/pic-7.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118318/7443" target="_top" id="2118318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118318" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 4\. 作業バッチで結果を確認
 
@@ -126,15 +156,37 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30096/pic-8.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 では、次にAI自動学習によるデータ抽出についてご紹介いたします。  
 データ抽出設定・確認方法は、次の4ステップになります。  
 ※文書仕分けについては既に設定済である事を前提とします。
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 1\. フィールド追加
 
@@ -142,21 +194,43 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30097/pic-9.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 2\. データ抽出用トレーニングバッチ作成、学習用画像読み込み
 
 プロジェクト設定ステーションのフィールド抽出用トレーニングバッチで新規バッチを作成します。その際、「文書定義セクションの選択」で該当する文書定義 > セクションを選択します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30098/pic-10.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 次に、作成したバッチにトレーニング用のサンプル画像ファイルを読み込み、認識を実行します。また、それぞれのサンプル画像に対し「学習用」「テスト用」を設定します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30099/pic-11.png)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### 3\. フィールド抽出トレーニングの実施
 
@@ -166,28 +240,50 @@ ABBYY FlexiCapture最大の特長としては「[複雑なレイアウトを持�
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30100/pic-12.png)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 以上でトレーニングの準備が整いましたので、学習ボタンをクリックする事によりトレーニングを実行、トレーニングが完了次第認識処理を実施し、結果を確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30101/pic-13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 4\. 作業バッチで結果を確認
 
 作業バッチでテスト画像を読み込み、正しくフィールド抽出が行われていることを確認します。
 
 ![AI自動学習](https://static1.abbyy.com/abbyycommedia/30102/pic-14.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 いかがでしょうか？
 
 簡単かつ直感的に文書仕分け・データ抽出の設定が可能であることがお分かりいただけたかと思います。
@@ -211,6 +307,20 @@ ABBYY FlexiCaptureについての概要、デモの依頼、お問い合わせ�
 ![ABBYY logo circle](https://static5.abbyy.com/abbyycommedia/29971/abbyy-logo-2021-blog-99x99.png)
 
 ABBYY Japan エンジニアリングチーム
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ### いいね！、シェア、再投稿
 

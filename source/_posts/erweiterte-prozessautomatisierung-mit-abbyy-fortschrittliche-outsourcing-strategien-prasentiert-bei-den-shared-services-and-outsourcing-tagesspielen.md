@@ -1,21 +1,75 @@
 ---
 title: Erweiterte Prozessautomatisierung Mit ABBYY - Fortschrittliche Outsourcing Strategien Präsentiert Bei Den Shared Services & Outsourcing Tagesspielen
-date: 2024-08-25T23:31:22.317Z
-updated: 2024-08-26T23:31:22.317Z
+date: 2024-09-10T10:04:24.952Z
+updated: 2024-09-11T10:04:24.952Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5ac1fdb72ff5f486734588f1cc91475aa04db1c8438011d2d41a4363ede19ca9.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1424533">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Erweiterte Prozessautomatisierung Mit ABBYY - Fortschrittliche Outsourcing Strategien Präsentiert Bei Den Shared Services & Outsourcing Tagesspielen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Intelligente Prozessautomatisierung - ABBYY auf der Shared Services & Outsourcing Woche
 
 13\. November 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, präsentiert Lösungen für Robotic Process Automation (RPA) und Artificial Intelligence (AI) auf der Shared Services & Outsourcing Woche (SSOW). Vom 13\. bis 16\. November 2017 berät ABBYY in Berlin Führungskräfte aus Shared Service Centern (SSC) und Outsourcing Dienstleistern (BPO) über die Auswirkungen der Digitalen Transformation auf zukünftige Geschäftsprozesse.
 
@@ -76,9 +130,6 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
 <li><a href="https://video-capture.techidaily.com/new-2024-approved-comprehensive-guide-to-io-screen-capture-capabilities/"><u>[New] 2024 Approved  Comprehensive Guide to IO Screen Capture Capabilities</u></a></li>

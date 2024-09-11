@@ -1,11 +1,25 @@
 ---
 title: "Gérez Vos Factures en Un Clin D'œil Grâce À La Solution ABBYY : Le Partenaire Idéal Pour Les Associations De Logement À Grande Échelle"
-date: 2024-08-25T23:31:24.484Z
-updated: 2024-08-26T23:31:24.484Z
+date: 2024-09-10T10:04:24.987Z
+updated: 2024-09-11T10:04:24.987Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/de67db97111b230778d53cfacb51bb9c7a1356b2082aff96997373a5633f37e3.jpg
 ---
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Gérez Vos Factures en Un Clin D'œil Grâce À La Solution ABBYY : Le Partenaire Idéal Pour Les Associations De Logement À Grande Échelle
 
@@ -13,9 +27,43 @@ thumbnail: https://thmb.techidaily.com/de67db97111b230778d53cfacb51bb9c7a1356b20
 
 Real Estate | Accounts Payable Automation
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## La solution partenaire ABBYY automatise le traitement des factures pour une grande association de logement
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/fr/70620.png?h=40&iar=0&w=120)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 [Retourner aux expériences clients](https://tools.techidaily.com/abbyy/products/)
 
@@ -24,6 +72,26 @@ Real Estate | Accounts Payable Automation
 Immobilier | Comptes fournisseurs 
 
 [![09-case-adactus](https://static4.abbyy.com/abbyycommedia/15131/09-case-adactus.jpg)](https://www.youtube.com/watch?v=VSzi7j1qpcE) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #### Aperçu du client
 
@@ -111,6 +179,26 @@ Les factures manuelles ne transitent plus dans toute l'entreprise, mais des work
 
 [![4-flexicapture](https://static2.abbyy.com/abbyycommedia/21380/4-flexicapture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983553">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983553.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983553">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983553.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983553%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983553/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 [En savoir plus](https://tools.techidaily.com/abbyy/products/) 
 
 [![1-accounts-payable](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [Dématérialisation des factures](https://tools.techidaily.com/abbyy/products/) 
@@ -129,9 +217,20 @@ Partager  True ?  : ""
 
 [Tous les sièges d’ABBYY](https://tools.techidaily.com/abbyy/products/) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Prêt à parler à un expert ?
 
 Nous serions ravis de vous aider tout au long de votre parcours d’automatisation.

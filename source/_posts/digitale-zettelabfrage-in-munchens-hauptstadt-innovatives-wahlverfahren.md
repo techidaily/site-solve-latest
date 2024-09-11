@@ -1,15 +1,49 @@
 ---
 title: Digitale Zettelabfrage in Münchens Hauptstadt - Innovatives Wahlverfahren
-date: 2024-08-25T23:32:43.070Z
-updated: 2024-08-26T23:32:43.070Z
+date: 2024-09-10T10:04:26.273Z
+updated: 2024-09-11T10:04:26.273Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/3c560b5f84950935f235a17f57ab9b2b0c297df9b81f28e15578b876da96606b.jpg
 ---
 
+
+
+
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Digitale Zettelabfrage in Münchens Hauptstadt - Innovatives Wahlverfahren
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Landeshauptstadt München testet Möglichkeit der digitalen Unterstützung zur Erfassung von Stimmzetteln
 
@@ -57,18 +91,26 @@ _Markus Pichler, Vice President of Sales Europe bei ABBYY_
 
 Weitere Informationen zu den Wahlkofferlösungen der IS4IT findet man unter <https://www.is4it.de/de/kofferloesungen-micc-smartcases/>
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Unternehmensprofil IS4IT
 
 Die IS4IT GmbH ist ein zertifiziertes, unabhängiges IT-Unternehmen mit über 300 Mitarbeitern, das seinen Kunden durchgängige Komplettlösungen für ihre gesamte IT- und Prozesslandschaft bietet. Mit den Schwerpunktthemen Beratung, Informationssicherheit, Rechenzentrum & Infrastruktur, Anwendersupport, Workplace Management und Cloud setzen wir die Anforderungen im Mittelstand, von Großunternehmen und internationalen Konzernen effizient in der Region DACH um.
 
 [www.is4it.de](https://www.is4it.de/de/ "www.is4it.de/de")
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### IS4IT Kontaktinformationen für Rückfragen
 
 #### IS4IT GmbH
@@ -85,23 +127,56 @@ Telefon +49 89 6389848-0
 
 [www.is4it.de](https://www.is4it.de/de/ "IS4IT Webseite")
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082532/7443" target="_top" id="2082532"><img src="//a.impactradius-go.com/display-ad/7443-2082532" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082532/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Über ABBYY
 
 ABBYY ermöglicht es, mit seiner Digital Intelligence Plattform die gesamten Geschäftsprozesse und Informationen, die ein Unternehmen antreiben, zu analysieren und im Detail zu verstehen. ABBYY-Technologien werden von mehr als 5.000 Unternehmen weltweit eingesetzt, darunter viele Fortune-500-Unternehmen. Die als führend ausgezeichneten Lösungen im Bereich [Intelligent Document Processing (IDP)](https://www.abbyy.com/company/news/everest-group-recognizes-abbyy-as-a-leader-in-intelligent-document-processing-products-peak-matrix-assessment-for-second-consecutive-year-2020/ "Everest Group Recognizes ABBYY as a Leader in Intelligent Document Processing Products") und [Process Discovery & Mining](https://tools.techidaily.com/abbyy/products/) steigern Effizienz, Rentabilität und Wettbewerbsfähigkeit eines Unternehmens und verbessern das Kundenerlebnis nachhaltig. ABBYY ist ein globales Unternehmen mit Niederlassungen in 14 Ländern. Weitere Informationen finden Sie unter <https://www.abbyy.com/de>.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126492/26400" target="_top" id="2126492">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126492" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126492/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### ABBYY Kontaktinformationen für Rückfragen
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2135475/26400" target="_top" id="2135475">
+  <img src="//a.impactradius-go.com/display-ad/26400-2135475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2135475/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 #### Bianca Stupp
 
 **ABBYY**

@@ -1,7 +1,7 @@
 ---
 title: "Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology"
-date: 2024-09-05T11:19:24.583Z
-updated: 2024-09-06T11:19:24.583Z
+date: 2024-09-10T10:04:22.593Z
+updated: 2024-09-11T10:04:22.593Z
 tags:
   - product-reviews
 categories:
@@ -9,14 +9,42 @@ categories:
 thumbnail: https://thmb.techidaily.com/997eaaad8fdf1ef3579a61ba5b99adb5daa8955b4f03feb88ed4fbbfd3a7861e.jpg
 ---
 
-## Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology
+
+
+
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+## Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ### Key Takeaways
 
 * Cherry XTRFY K5V2 offers customization from switches to keycaps, and per-key RGB lighting.
@@ -27,26 +55,22 @@ thumbnail: https://thmb.techidaily.com/997eaaad8fdf1ef3579a61ba5b99adb5daa8955b4
 
 ![Cherry XTRFY K5V2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/amazoncherryxtrfyk5v2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+
+
 
 <!-- affiliate ads begin -->
-<span id="1983475">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
+![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
 #####  Cherry Xtrfy K5V2
 
 8/ 10 
@@ -121,28 +145,10 @@ Expand
 
 [Amazon](https://www.amazon.com/Xtrfy-Mechanical-Keyboard-Swappable-Switches/dp/B0CTMZY7TX/ref=sr%5F1%5F3?crid=19YOL40WQLGKJ&dib=eyJ2IjoiMSJ9.Sy%5FFSJt40vqerbZFmwv5LmMlFvnH9w0fpztAICjRFQw.n41vgrDyU0LpZgB%5FZv0yWlg%5F2mV2LiiVhO-re9iehzc&dib%5Ftag=se&keywords=cherry%2Bxtrfy%2Bk5v2&qid=1713027908&sprefix=cherry%2Bxtrfy%2Bk5v2%2Caps%2C118&sr=8-3&th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002348&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fcherry-xtrfy-k5v2-review%2F&asc%5Fcampaign=Authority) [Cherry](https://cherryxtrfy.com/keyboards/k5v2-compact/) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##  The 65% Keyboard: Small, but Mighty
 
 ![Angled view of the backlit Cherry K5V2 Keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/angled-view-of-the-backlit-cherry-k5v2-keyboard-1jpg_53543595886_o-2.jpg) 
 
-<!-- affiliate ads begin -->
-<span id="1424531">
-					<video width="864" height="NaN" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424531.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424531">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424531.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424531%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424531/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  One of my favorite things about the XTRFY K5V2 is that it is so small without sacrificing the direction keys. Chopping off the number pad to make a keyboard smaller isn't new, but some keyboards sacrifice the familiar direction buttons or put them in a weird place. I like that Cherry kept these keys around.
@@ -155,16 +161,38 @@ Sergio Rodriguez / How-To Geek
 
  The keyboard also features pre-lubed, PCB-mounted stabilizers to ensure that the ABS keycaps respond reliably to your key presses, no matter how frantically you hit them. Beyond that, the XTRFY K5V2's keys are hot-swappable, meaning you can change them out for others. Also, as a sucker for lights, I have to point out that the per-key RGB lighting on this board is stellar.
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ##  Sweet New Cherry Key Switches
 
 ![keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2.jpg) 
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 Sergio Rodriguez / How-To Geek
 
  The XTRFY K5V2's biggest draw has to be its new key switches. As I mentioned, Cherry is known for its high-quality key switches. The XTRFY K5V2 debuts Cherry's new MX2A Red switches, which have a different mechanism than the venerable (and much-loved) MX Red switches.
@@ -177,12 +205,6 @@ Sergio Rodriguez / How-To Geek
 
 ![Angled view of the backlit Cherry K5V2 Keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/angled-view-of-the-backlit-cherry-k5v2-keyboard-1jpg_53543595886_o-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Sergio Rodriguez / How-To Geek
 
  Interestingly, Cherry doesn't offer software for its new keyboard. Instead, it packed a boatload of customization features into the board itself. Nearly every key has icons or text on the user-facing side. Hold the FN key, and they're active. Media controls? Check. RGB lighting options? Check. Macros? You betcha. It even has mouse control options.
@@ -197,6 +219,20 @@ Sergio Rodriguez / How-To Geek
 
 ![The Cherry K5V2 keyboard with its box and accessories](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/the-cherry-k5v2-keyboard-with-its-box-and-accessories-2jpg_53542721052_o-2.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Sergio Rodriguez / How-To Geek
 
  The [Cherry XTRFY K5V2](http://www.amazon.com/Xtrfy-Mechanical-Keyboard-Swappable-Switches/dp/B0CTMZY7TX/ref=sr%5F1%5F3?crid=2M1QNB34S5TNV&dib=eyJ2IjoiMSJ9.Sy%5FFSJt40vqerbZFmwv5LmMlFvnH9w0fpztAICjRFQw.n41vgrDyU0LpZgB%5FZv0yWlg%5F2mV2LiiVhO-re9iehzc&dib%5Ftag=se&keywords=cherry+xtrfy+k5v2&qid=1712543144&sprefix=cherry+xt%2Caps%2C120&sr=8-3&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002348&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fcherry-xtrfy-k5v2-review%2F&asc%5Fcampaign=Authority) is a big win. Yes, the lack of software means you have to interpret various icons to change settings. And, at $139, it's pricier than, say, the [Keychron C3 Pro](https://some-tips.techidaily.com/updated-the-art-of-transferring-tunes-between-platforms/). But should the XTRFY K5V2 fit your budget, I'd jump on it. I love the sound and feel of the new keys, the layout, and the RGB lighting. I don't think a gamer can go wrong with this mechanical keyboard.
@@ -204,6 +240,20 @@ Sergio Rodriguez / How-To Geek
 ![Cherry XTRFY K5V2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/amazoncherryxtrfyk5v2.jpg) 
 
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 #####  Cherry XTRFY K5V2
 

@@ -1,7 +1,7 @@
 ---
 title: Unlocking Website Potential with Cookiebot's Advanced Tracking Technology for SEO Success
-date: 2024-08-25T23:32:22.326Z
-updated: 2024-08-26T23:32:22.326Z
+date: 2024-09-10T10:04:25.916Z
+updated: 2024-09-11T10:04:25.916Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef755ab623092abbe72eca2c0.jpg
@@ -11,6 +11,20 @@ thumbnail: https://thmb.techidaily.com/9eb4aae367e8d7c80e3c075f7bffa3926b7f3e2ef
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 ## Clearing the Document Bottlenecks in Your Supply Chain Operations with a “Skills” Approach
 
 ###### Reginald J. Twigg
@@ -19,11 +33,39 @@ November 18, 2021
 
 ![](https://static1.abbyy.com/abbyycommedia/34766/skills-for-transportation-cover2-848x444.jpg) 
 
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
+
 Supply chains are the lifeline of consumers and industries alike, and they are especially vulnerable to disruptions. We’ve all experienced the impact of disruption, especially in the past two years, but disruption is compounded with fierce competition—forcing tight schedules and thin margins. Supply chains run on documents at every point in their processes, from sourcing to shipping to customs clearances and payments, and the ability to handle documents directly impacts a company’s resilience, adaptability, competitive position, and profits.
 
 Yet the approaches to handling documents is antiquated, often relying on legacy optical character recognition (OCR) procedures enhanced with robotic process automation (RPA) workarounds. What if there was a better way?
 
 **[Overcome unstructured content as an obstacle to automation in logistics.](https://static3.abbyy.com/abbyycommedia/34326/checklist-transportation-documentskillsmarketplace-en.pdf?itm%5Fsource=corpblog-en)**
+
+
+
+
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115935/19272" target="_top" id="2115935">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115935" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115935/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+
+
 
 ## Start with understanding documents
 
@@ -33,9 +75,26 @@ Documents are containers of vital information to any supply chain operation. Sou
 
 All too often, technology providers and companies are quick to reduce documents to data problems for systems of record, and this set of assumptions creates its own vulnerabilities to disruption and competition. Instead, documents contain both valuable data and content—the latter requiring skilled reading and context-grounded interpretation to make quick decisions. Skilled workforces interact with documents and content for this express purpose, since data only provides part of the picture needed to make critical decisions that move shipments or source materials and services every day. Artificial intelligence (AI) can add the dimension of skilled reading to documents, filling in that missing link between experience and data, but supply chains have yet to realize its potential for transforming their operations.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://ship7com.pxf.io/c/5597632/1509856/17634" target="_top" id="1509856"><img src="//a.impactradius-go.com/display-ad/17634-1509856" border="0" alt="" width="730" height="383"/></a>
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ## Add document ‘skills’ to your operations
 
 If a skilled, trained, and experienced workforce were not required, the “document problem” would have been solved a decade ago, but the reality is that these skills and experience are needed frequently to make decisions on content—decisions on sourcing, shipping, and receiving. Data extraction is sufficient in most cases, and straight-through processing of documents at 90 percent or better has become a common expectation. But even that level of efficiency requires some built-in Intelligent Document Processing capabilities in the tools, and the rest requires advanced decision-making skills.
@@ -44,18 +103,26 @@ Having the right tools with experienced, human-like skills built in with new-gen
 
 No longer do you need big capture platforms or frameworks to get the operational benefits of document skills. With the help of AI with pre-trained containerized document “skills” (pre-trained actions that understand the document, not just the data, but the actions needed to be taken on it), supply chains can finally remove common bottlenecks and gain control of the document-driven processes that all levels of business operations rely on—Transport & Logistics to Accounts Payable (AP) payment processing.
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Want to optimize your Transportation & Logistics operations for rapid change?
 
 We have a skill for that.
 
 [Visit ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
-<!-- affiliate ads end -->
 ## A marketplace approach
 
 Speed is the key to customer satisfaction and competitive advantage in [Transportation & Logistics](https://tools.techidaily.com/abbyy/products/). That is precisely the idea behind the new [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), the first digital marketplace for processing and understanding enterprise documents that provides a rich collection of content skills, connectors, and assets. Many of the top shippers and logistics providers, and many cloud-based companies, are providing their business users and citizen developers the best-in-class document and content processing with our easy-to-use, configurable, and pluggable platform, which is ready to use within minutes.
@@ -68,14 +135,28 @@ Learn more about how ABBYY is[helping Transportation and Logistics providers](ht
 
 ![Reggie Twigg ABBYY](https://static4.abbyy.com/abbyycommedia/25636/02c-reggietwigg-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Reginald J. Twigg
 
+
+
+
+
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983582">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983582.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983582">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983582.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983582%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983582/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+
+
+
 ### Like, share or repost
 
 Share 
