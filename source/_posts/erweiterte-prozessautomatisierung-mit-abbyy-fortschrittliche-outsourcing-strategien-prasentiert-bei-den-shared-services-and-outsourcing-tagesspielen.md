@@ -1,75 +1,21 @@
 ---
 title: Erweiterte Prozessautomatisierung Mit ABBYY - Fortschrittliche Outsourcing Strategien Präsentiert Bei Den Shared Services & Outsourcing Tagesspielen
-date: 2024-09-10T10:04:24.952Z
-updated: 2024-09-11T10:04:24.952Z
+date: 2024-09-23T19:57:05.522Z
+updated: 2024-09-30T18:53:30.586Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5ac1fdb72ff5f486734588f1cc91475aa04db1c8438011d2d41a4363ede19ca9.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1424533">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424533.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424533">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424533.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424533%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424533/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Erweiterte Prozessautomatisierung Mit ABBYY - Fortschrittliche Outsourcing Strategien Präsentiert Bei Den Shared Services & Outsourcing Tagesspielen
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Intelligente Prozessautomatisierung - ABBYY auf der Shared Services & Outsourcing Woche
 
 13\. November 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY, ein führender und globaler Anbieter von Technologien und Lösungen für den effektiven Einsatz von Informationen in Organisationen, präsentiert Lösungen für Robotic Process Automation (RPA) und Artificial Intelligence (AI) auf der Shared Services & Outsourcing Woche (SSOW). Vom 13\. bis 16\. November 2017 berät ABBYY in Berlin Führungskräfte aus Shared Service Centern (SSC) und Outsourcing Dienstleistern (BPO) über die Auswirkungen der Digitalen Transformation auf zukünftige Geschäftsprozesse.
 
@@ -121,8 +67,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -130,4 +74,26 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-webster.techidaily.com/nhancing-user-interaction-with-well-sized-thumbnails/"><u>[New] Enhancing User Interaction with Well-Sized Thumbnails</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-filching-frames-from-films-for-windows-10-photos-collection/"><u>[New] Filching Frames From Films for Windows 10 Photos Collection</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-motion-effects-in-ai-enhancing-photoshop-images/"><u>2024 Approved Mastering Motion Effects in AI Enhancing Photoshop Images</u></a></li>
+<li><a href="https://blog-min.techidaily.com/6-ways-to-transfer-contacts-from-realme-v30t-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>6 Ways To Transfer Contacts From Realme V30T to iPhone | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1725288614780-realplayer/"><u>動画ダウンロードできない RealPlayer 対策: うまく見つける方法</u></a></li>
+<li><a href="https://solve-helper.techidaily.com/abbyy-ocr-boosting-workflow-efficiency-in-recruitment-software-solutions/"><u>ABBYY OCR: Boosting Workflow Efficiency in Recruitment Software Solutions</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-nokia-c110-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-realme-c51-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Realme C51 phone? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/join-the-thrills-of-winxdvds-haunted-treasure-hunt-score-exclusive-halloween-dvd/"><u>Join the Thrills of WinXDVD's Haunted Treasure Hunt – Score Exclusive Halloween DVD !</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/melhores-10-softwares-de-conversao-de-dvd-para-mp4-no-mac-e-windows1011-este-ano-ranking-completo/"><u>Melhores 10 Softwares De Conversão De DVD Para MP4 No Mac E Windows/10/11 Este Ano: Ranking Completo</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/tutorial-come-replicare-in-modo-accurato-i-contenuti-dvd-sul-tuo-mac-utilizzando-big-sur-mantenendo-lintegrita-del-video-e-dellaudio/"><u>Tutorial: Come Replicare in Modo Accurato I Contenuti DVD Sul Tuo Mac Utilizzando Big Sur, Mantenendo L'integrità Del Video E Dell'audio</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unraveling-the-mystery-why-do-ios-to-android-transferred-videos-come-out-blurry/"><u>Unraveling the Mystery: Why Do iOS-to-Android Transferred Videos Come Out Blurry?</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

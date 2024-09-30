@@ -1,7 +1,7 @@
 ---
 title: "株式会社NSDとABBYYジャパンが認定パートナー関俁契約に至る:業界最新ニュース"
-date: 2024-08-25T23:35:18.127Z
-updated: 2024-08-26T23:35:18.127Z
+date: 2024-09-27T20:43:45.707Z
+updated: 2024-09-30T17:53:47.334Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0e76410444c7c01d9e8ad4e31c08df5ce8b625bff84337aa8bb982a08609d9e6.jpg
@@ -92,8 +92,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,7 +99,30 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-ideal-emulation-tools-to-relive-sonys-playstation-experience/"><u>[Updated] In 2024, Ideal Emulation Tools to Relive Sony's PlayStation Experience</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-in-2024-the-professionals-guide-to-adding-youtube-content-to-powerpoint-slides/"><u>[Updated] In 2024, The Professional's Guide to Adding YouTube Content to PowerPoint Slides</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724766755589-dvdiphone/"><u>高画質から安全に再生可能:ジャニーズDVDをiPhoneへの完璧移行方法</u></a></li>
+<li><a href="https://android-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-on-your-meizu-21-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock on your Meizu 21</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comparing-dvd-back-up-tools-vs-dvd-ripping-applications-key-differences-explained/"><u>Comparing DVD Back-Up Tools Vs. DVD Ripping Applications: Key Differences Explained</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-the-latest-macx-pro-the-ultimate-free-video-transcoder-for-mac-users/"><u>Download the Latest MacX Pro: The Ultimate Free Video Transcoder for Mac Users</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-vivo-v29e-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Vivo V29e | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/hilarious-animals-the-ultimate-collection-of-free-kid-friendly-video-compilation/"><u>Hilarious Animals: The Ultimate Collection of FREE Kid-Friendly Video Compilation</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-guide-successfully-repairing-live-server-communication-breakdown-errors/"><u>Master Guide: Successfully Repairing 'Live Server Communication Breakdown' Errors</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-featuring-the-use-of-camera-shake-in-creating-the-best-videos/"><u>Updated Featuring The Use of Camera Shake in Creating the Best Videos</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

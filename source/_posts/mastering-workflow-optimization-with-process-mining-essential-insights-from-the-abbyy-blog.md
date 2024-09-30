@@ -1,7 +1,7 @@
 ---
 title: Mastering Workflow Optimization with Process Mining - Essential Insights From the ABBYY Blog
-date: 2024-08-25T23:34:49.426Z
-updated: 2024-08-26T23:34:49.426Z
+date: 2024-09-28T16:53:31.390Z
+updated: 2024-09-30T16:11:39.726Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4abfbbef4983e1874c191caba.jpg
@@ -23,6 +23,13 @@ thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4a
 
 また、その中で、ABBYYY製品が活躍できる領域、およびその特徴を紹介します。
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **プロセスマイニングツール導入の目的と期待される効果**
 
 [プロセスマイニングツール](https://tools.techidaily.com/abbyy/products/)導入（業務分析実施）の目的と、その期待される効果は、以下のことを挙げることができます。
@@ -35,8 +42,19 @@ thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4a
 これらの効果は、これまでの人に依る、業務分析が、膨大なデータから、現状分析に多大な時間を要すことや、継続的なモニタリングの実施が困難であることを意味しており、上記のような効果を得ることで、潜在的な問題を解決するだけでなく競争力の強化や高い顧客満足度が得られる等、事業そのものへの効果も期待されます。![](https://static1.abbyy.com/abbyycommedia/29675/848x444-px-3.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135356/19272" target="_top" id="2135356">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135356" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135356/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144289/7443" target="_top" id="2144289">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144289" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144289/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **業務分析 – プロセスマイニングを導入する上での課題とアプローチ**
 
 * 何から・どこから分析すべきか判らない
@@ -53,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4a
 
 特定のERP、CRM、コールセンターシステム向け等のコネクタを用意している所もあるので、自社の業務システムを考慮し選定されるのも良いかもしれません。
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084399/18498" target="_top" id="2084399"><img src="//a.impactradius-go.com/display-ad/18498-2084399" border="0" alt="" width="1125" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084399/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **ABBYY Timelineの強み**
 
 * ABBYY Timelineは、[プロセスマイニングツール](https://tools.techidaily.com/abbyy/products/)の特徴であるログデータからのメイン業務のフローチャート化に加え、例外処理のフローチャート化も対象としています。併せて、25を超える多くの分析ツールから、改善ポイントの洗出しを可能とします。ABBYY Timeline データシートは[こちら](https://static4.abbyy.com/abbyycommedia/23846/datasheet-abbyy-timeline-automatic-analysis-of-business-processes-ja-10467.pdf?itm%5Fsource=jpblog)。
@@ -64,14 +79,15 @@ thumbnail: https://thmb.techidaily.com/0ad90fd897d188ac3bdb1a7ec9d7a4db382e65d4a
 
 ![ABBYY Timeline Dashboard](https://static1.abbyy.com/abbyycommedia/29252/updated-cover-image-848x444.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 トライアルは[こちら](https://tools.techidaily.com/abbyy/products/)からお申込み下さい。
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### **まとめ**
 
 本コラムでは、[プロセスマイニングツール](https://tools.techidaily.com/abbyy/products/)の選択、導入時の評価ポイントについて紹介しました。これらのポイントを踏まえ、適切なソリューションを選定することが非常に重要となります。また、ABBYY Timeline がご評価の選択肢となるような場合は、是非弊社までご連絡頂ければ幸いです。
@@ -80,9 +96,6 @@ ABBYY Japan エンジニアリングチーム
 
 [プロセスインテリジェンス](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア 
@@ -137,8 +150,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -146,4 +157,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-camstudio-updates-the-2023-guide-for-screen-recording-pros/"><u>[New] 2024 Approved CamStudio Updates The 2023 Guide for Screen Recording Pros</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-essential-8-platforms-for-private-screenings-for-2024/"><u>[New] Essential 8 Platforms for Private Screenings for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-evaluating-dailymotion-vs-youtube-profitability/"><u>[Updated] In 2024, Evaluating Dailymotion vs YouTube Profitability</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/updated-next-level-video-top-webcam-filters-for-flawless-broadcasts/"><u>[Updated] Next Level Video Top Webcam Filters for Flawless Broadcasts</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/day-one-patches-brings-optimized-experience-to-days-gone-on-pc/"><u>Day One Patches Brings Optimized Experience to 'Days Gone' On PC</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-s18-to-new-android-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Vivo S18 to New Android? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/leveraging-intelligent-automation-how-smarter-robots-manage-complex-unstructured-information-with-abbyy-innovations/"><u>Leveraging Intelligent Automation: How Smarter Robots Manage Complex, Unstructured Information with ABBYY Innovations</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/leveraging-the-power-of-cookiebot-for-superior-site-engagement-and-precision-marketing/"><u>Leveraging the Power of Cookiebot for Superior Site Engagement & Precision Marketing</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/live-webinar-on-seamlessly-merging-flexicapture-with-timeline-the-abbyy-experience/"><u>Live Webinar on Seamlessly Merging FlexiCapture with Timeline – The ABBYY Experience</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/maximieren-sie-den-cashflow-nutzen-sie-die-moglichkeiten-durch-die-abbyy-checkliste/"><u>Maximieren Sie Den Cashflow - Nutzen Sie Die Möglichkeiten Durch Die ABBYY Checkliste</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimized-web-interactions-with-cookiebot-technology/"><u>Optimized Web Interactions with Cookiebot Technology</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/staying-relevant-essential-instagram-hashtags-for-success/"><u>Staying Relevant Essential Instagram Hashtags for Success</u></a></li>
+</ul></div>
 

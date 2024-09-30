@@ -1,7 +1,7 @@
 ---
 title: Top Causes of Citizen Drop-Off in Government Digital Registration Unveiled by ABBYY's Latest Survay
-date: 2024-08-25T23:34:54.830Z
-updated: 2024-08-26T23:34:54.830Z
+date: 2024-09-24T16:03:12.397Z
+updated: 2024-09-30T20:24:10.424Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8010c35385b1d4db309ae5aab39ce0f7ad55b6a2892c96756f155f1fe1fe9c5e.jpg
@@ -54,6 +54,13 @@ To learn more about the survey, download [The State of Intelligent Automation Re
 
 This research was conducted by Sapio Research in September 2022 on behalf of ABBYY. The survey was conducted among 1,623 IT decision makers across the UK, US, France, Germany, and Japan and highlights government responses on the challenges and drivers organizations face with digital onboarding. The survey also included responses from IT decision makers in banking, finance, and transportation and logistics.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896560/19272" target="_top" id="1896560">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896560" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896560/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### About ABBYY
 
 ABBYY powers intelligent automation. We reimagine the way people work and how companies accelerate business by delivering the intelligence that fuels automation platforms. Our solutions transform enterprise data and empower you with the insights you need to work smarter and faster. 
@@ -65,15 +72,23 @@ ABBYY is a US-based global company with offices in 14 countries. For more inform
 ABBYY can either be a registered trademark or a trademark and can also be a logo, a company name (or part of it), or part of a product name of ABBYY group companies and may not be used without consent of its respective owners.
 
 <!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://imp.i357552.net/c/5597632/1061528/11832" target="_top" id="1061528">
+  <img src="//a.impactradius-go.com/display-ad/11832-1061528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1061528/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### ABBYY Editorial Contact
 
 ![02D Ginaray](https://static2.abbyy.com/abbyycommedia/23662/02d-ginaray.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2337838&QTY=1&AFFILIATE=108875&CART=1"><iframe width="640" height="390" src="https://www.youtube.com/embed/rzZwphIv4RM" title="APFill - Ink and Toner Coverage Calculator" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Gina Ray
 
 _ABBYY_
@@ -89,8 +104,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -98,4 +111,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-expert-advice-on-rl-gameplay-screen-sharing/"><u>[Updated] In 2024, Expert Advice on RL Gameplay Screen Sharing</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-the-ultimate-compilation-of-apples-finest-free-creative-collage-apps/"><u>[Updated] The Ultimate Compilation of Apple's Finest FREE, Creative Collage Apps</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/descargas-gratuitas-de-conversion-cambie-su-archivo-wmv-a-mp4-con-facilidad/"><u>Descargas Gratuitas De Conversión: Cambie Su Archivo WMV a MP4 Con Facilidad</u></a></li>
+<li><a href="https://windows11.techidaily.com/establishing-kids-internet-freedom-boundaries-on-windows-11/"><u>Establishing Kids' Internet Freedom Boundaries on Windows 11</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/evaluating-the-efficiency-of-your-policy-administration-cycle-insights-from-abbyys-electronic-document-management/"><u>Evaluating the Efficiency of Your Policy Administration Cycle: Insights From ABBYY's Electronic Document Management</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-abbyys-innovative-showcase-content-iq-platform-unveiled-at-londons-premier-ai-summit/"><u>Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-the-power-of-process-mining-in-healthcare-industry-an-insightful-guide/"><u>Exploring the Power of Process Mining in Healthcare Industry - An Insightful Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-user-experience-and-seo-performance/"><u>Harness the Power of Cookiebot for Enhanced User Experience & SEO Performance</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-mobile-solutions-propel-expense-management-towards-seamless-financial-automation-insights-from-the-abbyy-perspective/"><u>How Mobile Solutions Propel Expense Management Towards Seamless Financial Automation: Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-2023s-prime-divers-top-tier-aquatic-camera-choices/"><u>In 2024, 2023'S Prime Divers Top-Tier Aquatic Camera Choices</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-best-anti-tracker-software-for-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Best Anti Tracker Software For Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/instant-accessibility-how-textgrabber-revolutionizes-androids-on-the-fly-text-interaction/"><u>Instant Accessibility: How TextGrabber Revolutionizes Android's On-The-Fly Text Interaction</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/introducing-the-new-abbyy-sdk-advanced-capabilities-for-seamless-image-to-text-conversion/"><u>Introducing the New ABBYY SDK: Advanced Capabilities for Seamless Image-to-Text Conversion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/showcase-your-story-premium-ig-covers-for-iphone-users-for-2024/"><u>Showcase Your Story Premium IG Covers for iPhone Users for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/unflip-and-correct-display-orientation-error/"><u>Unflip and Correct Display Orientation Error</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/unlocking-your-pc-without-a-pin-in-windows-10-a-comprehensive-tutorial/"><u>Unlocking Your PC Without a PIN in Windows 10 - A Comprehensive Tutorial</u></a></li>
+</ul></div>
 

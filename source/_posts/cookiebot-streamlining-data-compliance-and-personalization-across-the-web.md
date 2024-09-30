@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: Streamlining Data Compliance & Personalization Across the Web"
-date: 2024-08-25T23:33:13.397Z
-updated: 2024-08-26T23:33:13.397Z
+date: 2024-09-23T16:48:59.643Z
+updated: 2024-09-30T17:17:58.743Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0464d20c8383250ad5eec7dae311ce3366a21c1ceecc558739dbb36535dbfcf9.jpg
@@ -43,9 +43,6 @@ OCR 処理は、情報抽出したいファイルから始まります。この�
 
 抽出されたデータは、既知の文字や記号を表す定義済みのパターンやテンプレートのセットと照合されます。その過程において、機械学習やニューラルネットワークなどの技術を組み込んで認識精度を向上させながら、異なるフォントや言語、表やリスト、バーコードなどの複雑なレイアウトに対応するための調整を行います。問題が発生した場合は、人間による評価を行うためにフラグを立てることも可能です。文字認識プロセスが完了したら、スペルチェック、文脈分析、言語モデリングなどを使ってエラーをチェックしながら、精度を向上させていきます。その後、OCRソフトウェアが最終的な機械可読テキストを作成したら、コンピューターシステムへの統合が可能となります。
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ### OCRのメリット
 
 [OCR](https://tools.techidaily.com/abbyy/products/)は、文書を多用するあらゆる業界にとって不可欠な技術です。従業員が日々行っている現行の文書処理業務に取り入れたり、アーカイブをデジタル化したりすることができるだけでなく、医療文書や物流文書など大量の文書を処理してアクセス可能なデジタル文書保管庫を作成することも可能です。
@@ -59,9 +56,6 @@ OCR 処理は、情報抽出したいファイルから始まります。この�
 
 OCRソリューションの一般的な使用例としては、大量の紙文書やデジタル文書をアクセシブルで検索可能なフォーマットに変換することで、政府や企業の規制へのコンプライアンスを促進する組織、検索、eDiscovery、データ分析のために紙の契約書を編集可能なデジタルフォーマットに変換する法律事務所、HIPAAコンプライアンスを維持するために患者の記録をコンピュータシステムに転送するヘルスケア企業などが挙げられます。 図書館や公文書館では、歴史的文書をデジタル形式で保存することで、スタッフが日々のさまざまな文書関連業務を効率的に行えるようにします。ソフトウェア開発会社では、コンテンツサービス、デジタルアーカイブ、文書管理システム（DMS）、エンタープライズコンテンツ管理（ECM）ソリューションなどを開発しています。
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425"><img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## IDPとは？
 
 [インテリジェント文書処理](https://tools.techidaily.com/abbyy/products/)**(IDP) は**、あらゆる業界のあらゆるプロセスにおいて、ビジネス文書に埋め込まれたデータを自動的に取り込み、抽出・処理することで、文書のストレートスルー処理を可能にします。
@@ -69,11 +63,12 @@ OCRソリューションの一般的な使用例としては、大量の紙文�
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+
 ### 仕組み
 
 IDPは、光学式文字認識（OCR）をを活用して、印刷物や手書き文字をテキスト化し、コンピューターが読み取れるフォーマットに変換します。さらに、人工知能（AI）と機械学習（ML）の技術を応用して、定型、準定型、非定型データの文書を人間のように読み取り、理解・処理します。
@@ -83,6 +78,13 @@ IDPは、機械学習モデルを使用して、文書をその内容、レイ�
 自然言語処理（NLP）を組み込むことで、このテクノロジーは読み取った情報の文脈を解釈することもできます。例えば、「ジャガー」という言葉は、動物のジャガーを指しているのか、それとも車メーカーを指しているのかを判断します。あるいは、「訴える」という言葉が、人が何かを訴えかけること指すのか、それとも法的行為を指すのかを判断します。NLPを適用することで、これまで認識が難しかった非構造化データの特定と抽出をかつてないレベルで実現します。NLP を活用した IDP は、あたかも人間の脳のように、変化する入力に素早く適応し、最良の結果を導き出すことができます。この種の高度な技術は、インテリジェントオートメーションまたはハイパーオートメーションと呼ばれています 。
 
 The [IDPプラットフォーム](https://tools.techidaily.com/abbyy/products/)は、ERPやCRMなど、さまざまなビジネスシステムに簡単に統合することができます。新しいローコード／ノーコードのプラットフォームを活用すれば、シチズンデベロッパー (非エンジニア開発者) でも、大規模な IT インフラ構築や保守をクライアント側で行う必要がなく、IDP テクノロジーを数日で導入することが可能です。
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### IDPのメリット
 
@@ -133,9 +135,6 @@ IDPテクノロジーは、人間がドキュメントを理解し管理する�
 
 インテリジェント文書処理で、デジタル化がうまくいかない原因となるボトルネックを解消することができます。[企業はIDP技術を利用して身元証明や](https://tools.techidaily.com/abbyy/products/)身元確認を行うことができ、顧客にとってはより簡単に、企業にとってはより安全になります。IDPは、運転免許証やパスポートのようなID文書、あるいは銀行取引明細書や公共料金請求書のような住所証明に必要な文書を取り込み、分類することができます。例えば、自動車局（DMV）が運転免許証の更新に使ったり、銀行が住宅ローンの申請に使ったりすることができます。
 
-<!-- affiliate ads begin -->
-<a href="https://arkmc.pxf.io/c/5597632/427477/5172" target="_top" id="427477"><img src="//a.impactradius-go.com/display-ad/5172-427477" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/427477/5172" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## OCR vs IDP： 貴社のビジネスに最適な導入手段とは？
 
 **OCRは時にIDPプラットフォームと誤解されることがありますが、実際にはIDPの方がはるかに幅広い機能を備えています。**OCRは主に、画像や文書から全文を抽出し、コンピューター画面上で転送・編集できるようにすることに重点を置いています。さまざまなフォントスタイル、画像、手書きメモを認識し、編集・検索可能なデジタルテキストに変換します。デジタル・アーカイブ・ソリューションや、優れたテキスト認識、PDF変換、データキャプチャ機能を必要とする支援技術の開発を目指す企業には、OCRソリューションが最適です。[ABBYYのOCRソフトウェア開発キット](https://tools.techidaily.com/abbyy/products/)（SDK）を使用して、優れた文書キャプチャ機能を得ることができます。
@@ -143,6 +142,13 @@ IDPテクノロジーは、人間がドキュメントを理解し管理する�
 **IDPはOCR技術を包含していますが、人間のようにテキストを分析・解釈できる点において、さらに一歩進んでいます。** 自然言語処理、機械学習、人工知能などの高度な技術を駆使し、文書の内容をより包括的に理解します。したがって、IDPは単にテキストを抽出するだけでなく、文脈の理解、データの検証、発見した情報に基づく意思決定を可能にします。IDPは、高度な文書処理、ワークフローの自動化、コンテンツに基づく意思決定を必要とする組織に適しています。[ABBYY Vantage](https://tools.techidaily.com/abbyy/products/)のような新しいローコード／ノーコードソリューションを使用することで、企業は事前に学習されたすぐに使用可能な文書処理モデルが搭載されたIDPを導入することができます。あるいは、文書の種類やビジネスニーズに固有の要件に基づいて独自の抽出モデルを迅速かつ簡単に作成することも可能です。
 
 [デモを申し込む](https://tools.techidaily.com/abbyy/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925565/19272" target="_top" id="1925565">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925565" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925565/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## よくある質問
 
@@ -185,8 +191,18 @@ OCR（光学式文字認識）とIDP（インテリジェント文書処理）�
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Slavena Hristova
 
 ABBYY Vantageグループ、 製品マーケティングディレクター
@@ -194,6 +210,13 @@ ABBYY Vantageグループ、 製品マーケティングディレクター
 スラベナ・フリストワは、ABBYY Vantageの製品マーケティングディレクターです。フリストワは、ABBYY Vantage製品ラインのグローバル製品マーケティングを統括しています。市場要件や市場参入戦略の策定から、チャネルパートナー向けの販売支援やトレーニング提供にいたるまで、製品ライフサイクル全体を管理しています。テキスト認識、情報管理、文書管理の分野で製品管理とマーケティングに数年の経験があります。
 
 [LinkedIn](https://www.linkedin.com/in/slavena-hristova-r%C3%B6%C3%9Fler-044aa05a/)でスラベナと繋がりませんか。
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### いいね、シェア、再投稿
 
@@ -249,8 +272,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -258,4 +279,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-temporary-hold-recording-assistance/"><u>[New] 2024 Approved Temporary Hold Recording Assistance</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-download-free-youtube-pics-and-templates/"><u>[New] Download Free YouTube Pics & Templates</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-how-to-make-killer-youtube-channel-art/"><u>[New] In 2024, How to Make Killer YouTube Channel Art</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-time-saving-tricks-for-powerpoint-projections/"><u>[New] Time-Saving Tricks for PowerPoint Projections</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ransform-your-video-editing-youtube-tunes-in-imovie/"><u>[New] Transform Your Video Editing YouTube Tunes in iMovie</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/updated-2024-approved-the-6-pillars-of-effective-facebook-live-website-integration/"><u>[Updated] 2024 Approved The 6 Pillars of Effective Facebook Live Website Integration</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-classic-fanfare-fix/"><u>[Updated] In 2024, Classic Fanfare Fix</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724766755589-dvdiphone/"><u>高画質から安全に再生可能:ジャニーズDVDをiPhoneへの完璧移行方法</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/a-beginners-guide-to-minitool-movie-maker-review-tutorial-and-alternatives/"><u>A Beginners Guide to Minitool Movie Maker Review, Tutorial, and Alternatives</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comparing-dvd-back-up-tools-vs-dvd-ripping-applications-key-differences-explained/"><u>Comparing DVD Back-Up Tools Vs. DVD Ripping Applications: Key Differences Explained</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-the-latest-macx-pro-the-ultimate-free-video-transcoder-for-mac-users/"><u>Download the Latest MacX Pro: The Ultimate Free Video Transcoder for Mac Users</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effortless-editing-with-quicktime-pro-master-cutting-splitting-rotating-and-enhancing-your-videos/"><u>Effortless Editing with QuickTime Pro: Master Cutting, Splitting, Rotating & Enhancing Your Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/expert-strategies-for-effective-instagram-video-interactions/"><u>Expert Strategies for Effective Instagram Video Interactions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1724766414607-firefox/"><u>Firefoxで動画をダウンロードするための「ビデオダウンロードヘルパー」インストールと設定ガイド</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/hilarious-animals-the-ultimate-collection-of-free-kid-friendly-video-compilation/"><u>Hilarious Animals: The Ultimate Collection of FREE Kid-Friendly Video Compilation</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mp4-versus-wmv-a-detailed-comparison-of-video-formats/"><u>MP4 versus WMV: A Detailed Comparison of Video Formats</u></a></li>
+<li><a href="https://win-answers.techidaily.com/resolved-how-to-fix-vanguard-uninitialized-errors-in-valorant/"><u>Resolved: How to Fix Vanguard Uninitialized Errors in VALORANT</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/score-a-deal-on-macx-hd-video-converter-pro-exclusive-discounts-for-windows-users/"><u>Score a Deal on MacX HD Video Converter Pro - Exclusive Discounts for Windows Users!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-transition-sync-your-entire-iphone-library-with-itunes-without-any-loss-of-information/"><u>Seamless Transition: Sync Your Entire iPhone Library with iTunes Without Any Loss of Information</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Die Kraft Des Texterkennens Mit ABBYY: Einblicke in Kundenerfahrungen Und Vorteile"
-date: 2024-08-25T23:34:36.213Z
-updated: 2024-08-26T23:34:36.213Z
+date: 2024-09-29T20:39:26.044Z
+updated: 2024-09-30T19:00:10.155Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/64cbdaa1aef5615ff39347b9db4c0280ec8c3ce520d27154774aa65c3ef13831.jpg
@@ -19,6 +19,19 @@ BPO and Shared Services | Digital Archiving
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## RWS setzt auf die Vorteile von ABBYY Recognition Server
 
 BPO/Dienstleistung­sanbieter | Digitale Archivierung 
@@ -28,6 +41,13 @@ BPO/Dienstleistung­sanbieter | Digitale Archivierung
 #### Über den Kunden
 
 ![RWS Group](https://static4.abbyy.com/abbyycommedia/14444/rws.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name        | RWS Group                          |
 | ----------- | ---------------------------------- |
@@ -101,6 +121,13 @@ Der ROI für die erste Recognition Server Installation konnte bereits nach 12 Mo
 
 [![14-bpo](https://static2.abbyy.com/abbyycommedia/14364/14-bpo.jpg)](https://tools.techidaily.com/abbyy/products/) [BPOs und Outsourcing-Dienstleister](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
 [![3a-rws_rs_e_small](https://static5.abbyy.com/abbyycommedia/14329/3a-rws_rs_e_small.jpg)](https://static4.abbyy.com/abbyycommedia/6145/cs%5Frws%5Frs%5Fd.pdf "PDF-Version") [PDF-Version](https://static4.abbyy.com/abbyycommedia/6145/cs%5Frws%5Frs%5Fd.pdf "PDF-Version") 
@@ -116,8 +143,12 @@ Teilen  True ?  : ""
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
@@ -130,8 +161,6 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -139,4 +168,26 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/new-beneath-the-surface-exploring-the-invisible-aspects-of-viewing-stories-for-2024/"><u>[New] Beneath the Surface Exploring The Invisible Aspects of Viewing Stories for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-master-video-editing-turn-your-avis-into-stylish-shareable-gifs-with-filmora/"><u>[Updated] Master Video Editing Turn Your AVIs Into Stylish, Shareable GIFs with Filmora</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-transformative-visual-experiences-with-tiktok-enhancements/"><u>[Updated] Transformative Visual Experiences with TikTok Enhancements</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/deutsche-post-dhl-boosts-operational-efficiency-by-70-through-rpa-and-abbyy-idp-implementation/"><u>Deutsche Post DHL Boosts Operational Efficiency by 70% Through RPA and ABBYY IDP Implementation</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/digitizing-costains-finances-with-abbyy-technology-insights-from-recent-developments-in-the-newsroom/"><u>Digitizing Costain's Finances with ABBYY Technology: Insights From Recent Developments in the Newsroom</u></a></li>
+<li><a href="https://common-error.techidaily.com/directx-troubleshooting-successfully-addressing-unrecoverable-error-scenarios/"><u>DirectX Troubleshooting: Successfully Addressing Unrecoverable Error Scenarios</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/einfach-wechseln-mit-butagaz-intelligente-datenabfrage-fur-eine-reibungslose-versorgungsanderung/"><u>Einfach Wechseln Mit Butagaz - Intelligente Datenabfrage Für Eine Reibungslose Versorgungsänderung</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-web-analytics-and-personalization-through-the-power-of-cookiebot-technology/"><u>Enhance Web Analytics and Personalization Through the Power of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-your-document-management-system-with-abbyy-and-laserfiche-combined-capabilities-using-flexicapture-technology/"><u>Enhance Your Document Management System with ABBYY and Laserfiche Combined Capabilities Using FlexiCapture Technology</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/google-meet-go-live-your-youtube-broadcast-companion/"><u>Google Meet Go Live - Your YouTube Broadcast Companion</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-ai-for-enhanced-document-conversion-insights-from-ab-technologies-at-the-sf-business-forum/"><u>Harnessing AI for Enhanced Document Conversion: Insights From AB Technologies at the SF Business Forum</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-tracking-and-personalization/"><u>Harnessing the Power of Cookiebot for Advanced Site Tracking and Personalization</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/immersive-innovations-the-distinct-worlds-of-mr-ar-and-vr-for-2024/"><u>Immersive Innovations The Distinct Worlds of MR, AR, & VR for 2024</u></a></li>
+<li><a href="https://driver-download.techidaily.com/latest-sound-blaster-z-driver-software-for-windows-11-free-downloads-available-now/"><u>Latest Sound Blaster Z Driver Software for Windows 11 - Free Downloads Available Now</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/meet-the-new-leader-of-abbyys-marketing-strategy-scott-opitz-steps-up-as-chief-marketing-officer/"><u>Meet the New Leader of ABBYY's Marketing Strategy: Scott Opitz Steps Up as Chief Marketing Officer</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mehr-als-die-halfte-deutschlands-mochte-robotern-einfache-und-ungeliebte-aufgaben-uberlassen/"><u>Mehr Als Die Hälfte Deutschlands Möchte Robotern Einfache Und Ungeliebte Aufgaben Überlassen</u></a></li>
+<li><a href="https://win-docs.techidaily.com/seamless-file-sharing-transferring-data-from-windows-to-android-using-google-quick-share-tips-and-techniques/"><u>Seamless File Sharing: Transferring Data From Windows to Android Using Google Quick Share - Tips & Techniques</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/the-djs-guide-to-elevating-visual-narratives-with-soundtracks-fb/"><u>The DJ's Guide to Elevating Visual Narratives with Soundtracks (FB)</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/title-transformations-beyond-standard-styles/"><u>Title Transformations Beyond Standard Styles</u></a></li>
+</ul></div>
 

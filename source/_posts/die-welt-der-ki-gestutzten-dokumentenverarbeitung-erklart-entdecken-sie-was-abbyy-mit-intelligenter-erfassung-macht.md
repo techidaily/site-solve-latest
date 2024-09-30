@@ -1,7 +1,7 @@
 ---
 title: "Die Welt Der KI-Gestützten Dokumentenverarbeitung Erklärt: Entdecken Sie, Was ABBYY Mit Intelligenter Erfassung Macht"
-date: 2024-09-10T10:04:25.549Z
-updated: 2024-09-11T10:04:25.549Z
+date: 2024-09-28T18:11:05.463Z
+updated: 2024-09-30T16:06:57.428Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6ed8b5f1e4a621d2eef1f390.jpg
@@ -18,20 +18,6 @@ thumbnail: https://thmb.techidaily.com/8ec7f9d19b5395810145f1bf31b1db142a6ba9be6
 August 28, 2023
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/idp-scheme-848x444-b-de.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 Es mag zwar sehr modern klingen (und ist es auch), aber die frühesten Wurzeln der intelligenten Dokumentenverarbeitung liegen in der Entwicklung der ersten OCR-Lösungen (Optical Character Recognition), die kaum mehr taten, als Zeichenbilder in maschinenkodierten Text umzuwandeln. Intelligente Dokumentenverarbeitung (Intelligent Document Processing, IDP) verfügt heute über auf künstlicher Intelligenz basierende Funktionen, die die Verarbeitung aller Arten von Daten aus jeder Art von Dokument – strukturiert, halbstrukturiert oder unstrukturiert – für nahezu jeden Prozess in jeder Branche ermöglichen. Dieser Blog befasst sich mit den am häufigsten gestellten Fragen zur intelligenten Dokumentenverarbeitung, einschließlich ihrer Funktionsweise und Anwendungsbeispielen, um Ihnen zu zeigen, wie Sie IDP nutzen können, um Ihr Unternehmen zu verändern. 
 
@@ -66,41 +52,27 @@ Um zu verstehen, was IDP ist und wie sie Unternehmen nützt, muss man wissen, wa
 ## Die Entwicklung der IDP  
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/14000_what-is-intelligent-document-processing-blog-post-scheme-graphics-de.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120864/26400?prodsku=Mercury" target="_top" id="2120864">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120864/26400?prodsku=Mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Wie funktioniert die intelligente Dokumentenverarbeitung? 
 
 IDP nutzt Techniken der natürlichen Sprachverarbeitung (NLP) und Kontextdaten im umgebenden Text zur Entitätsextraktion, mit der automatisch und mit hoher Genauigkeit festgestellt wird, auf welche Entitäten verwiesen wird. Bezeichnet das Wort „Jaguar“ beispielsweise eine Großkatze oder ein Auto? Oder bezeichnet das Wort „Sue“ in einem englischen Text eine Person oder eine rechtliche Klage? Mittels NLP identifiziert und extrahiert IDP unstrukturierte Daten mit bisher unerreichter Präzision, wie ein menschliches Gehirn, das schnell auf veränderte Eingaben reagiert und das bestmögliche Ergebnis liefert. 
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/idp-scheme-848x444-b-de.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123474/16836" target="_top" id="2123474">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123474" border="0" alt="https://techidaily.com" width="300" height="50"/>
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123474/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
-
-
-
 [FastML](https://tools.techidaily.com/abbyy/products/), ein neues kundenseitiges selbstlernendes Tool, verwendet visuelle und textuelle Extraktionsmethoden, was eine noch genauere Datenextraktion ermöglicht. Unternehmen, die sich einen Wettbewerbsvorteil verschaffen wollen, können die schwerfällige und inhaltsorientierte Arbeitslast auf intelligente Dokumentenverarbeitung und intelligente Automatisierungslösungen verlagern, damit ihre Mitarbeitenden Zeit haben, sich mit lohnenderen Aufgaben zu beschäftigen und bessere Kundenerlebnisse zu schaffen.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Was sind die Vorteile der intelligenten Dokumentenverarbeitung? 
 
@@ -113,43 +85,22 @@ In allen Branchen stehen die Unternehmen unter dem Druck, mit weniger qualifizie
 
 **[Verwandter Inhalt: Bericht zum Stand der intelligenten Automatisierung: Einflussfaktoren und Probleme der Neukundenaufnahme](https://tools.techidaily.com/abbyy/products/)**
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Process Mining ins Spiel.
 
 **![](https://content.abbyy.com/-/media/project/abbyy/abbyy/insights/blog/intelligent-document-processing/process-intelligence-how-it-works-de.jpg)**
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1975555">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+<span id="1495277">
+					<video width="1536" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1495277.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/17189-1495277">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1495277.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:960px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ffunwhole.sjv.io%2Fc%2F5597632%2F1495277%2F17189'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1495277/17189" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [**Process Mining**](https://tools.techidaily.com/abbyy/products/) **hilft Unternehmen, ihre Prozesse zu analysieren, um intelligente Entscheidungen darüber zu treffen, wo die Dokumentenverarbeitung automatisiert werden soll. Es extrahiert Zeitstempeldaten aus Informationssystemen und wendet KI an, um ein visuelles Modell des Prozesses von Anfang bis Ende zu erstellen, einschließlich aller Abweichungen.** Die Prozessverantwortlichen erhalten einen klaren Überblick darüber, wie die Inhalte durch den Prozess fließen, und erhalten die nötigen Einblicke, um Ineffizienzen zu erkennen und zu beseitigen, die den Erfolg der IDP-Implementierung beeinträchtigen könnten.
 
@@ -160,19 +111,12 @@ Als Grundlage für eine erfolgreiche Automatisierung arbeitet [Process Mining](h
 * festzulegen, wie sie mit Inhalten umgehen sollten, damit der Prozess besser funktioniert; und
 * die erforderlichen Document-Skills zur Optimierung der Verarbeitung von Inhalten anzuwenden.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## IDP-Anwendungsfälle: Digitale Beherrschung Ihrer Daten und Prozesse 
 
@@ -203,20 +147,6 @@ Fehler in Papierdokumenten können eine Sendung aufhalten und zu erheblichen Ver
 Das weltweit im Bereich [Logistik](https://tools.techidaily.com/abbyy/products/) tätige Unternehmen Deutsche Post DHL Group liefert Pakete und Expresssendungen grenzüberschreitend in die ganze Welt und erzielte durch die Automatisierung seiner Finanzabteilung hervorragende Ergebnisse. 
 
 Das Unternehmen, das im Jahr 2022 einen Umsatz von 100 Milliarden US-Dollar erwirtschaftete, nutzte zuvor ein weitgehend manuelles Buchhaltungssystem für die Verarbeitung von Hunderttausenden von Rechnungen pro Jahr. Durch die Einführung der intelligenten Dokumentenverarbeitung von ABBYY war das Unternehmen in der Lage, Rechnungen von 124 Lieferanten in verschiedenen Sprachen automatisch zu verarbeiten und so Fehler zu reduzieren und die Produktivität zu steigern. Das Unternehmen hat dann das IDP-Automatisierungsprojekt auf andere Abteilungen ausgeweitet und konnte so eine unglaubliche Effizienzsteigerung von 70 Prozent erzielen.
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Die Auswahl der richtigen Software für intelligente Dokumentenverarbeitung 
 
@@ -287,25 +217,12 @@ Maxime Vermeir verfügt über ein Jahrzehnt an Erfahrung in den Bereichen Produk
 
 Nehmen Sie über [LinkedIn](https://www.linkedin.com/in/maximevermeir/)mit Max Kontakt auf.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1977028">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Like, share or repost
 
@@ -361,8 +278,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -370,4 +285,18 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-minecraft-sustainable-house-projects-6-10-for-2024/"><u>[Updated] Minecraft Sustainable House Projects #6-10 for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-review-how-toolwiz-stacks-up-in-photo-app-landscape/"><u>[Updated] Review How Toolwiz Stacks Up in Photo App Landscape</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/approved-the-essence-of-earnings-a-3-step-expedient-to-measure-your-youtube-profitability/"><u>2024 Approved The Essence of Earnings A 3-Step Expedient to Measure Your YouTube Profitability</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/iuwlleeuupluswmluobruajiplusmghjrpq5jlk4hos6rjg5pjg4fjgqrjgbjjga7lpinmj5vmlrnms5ui/"><u>動画化の手順:高品質ビデオへの変換方法</u></a></li>
+<li><a href="https://driver-download.techidaily.com/asus-mouse-pad-software-update-for-windows-operating-systems-free-download/"><u>ASUS Mouse Pad Software Update for Windows Operating Systems – Free Download</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-fix-windows-media-player-cd-burning-error-a-complete-guide/"><u>How To Fix Windows Media Player CD Burning Error: A Complete Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-nubia-red-magic-9-proplus-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Nubia Red Magic 9 Pro+?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/mov-vs-mp4-comprehensive-guide-to-understanding-their-key-differences/"><u>MOV vs MP4: Comprehensive Guide to Understanding Their Key Differences</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/resolving-vlc-players-hd-video-hitches-a-comprehensive-guide/"><u>Resolving VLC Player's HD Video Hitches: A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/simple-guide-transforming-your-dvds-into-avi-files-without-hitches/"><u>Simple Guide: Transforming Your DVDs Into AVI Files Without Hitches</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-ultimate-guide-find-the-best-10-free-ogv-video-codec-changers-pc-and-web/"><u>The Ultimate Guide: Find the Best 10 FREE OGV Video Codec Changers (PC & Web)</u></a></li>
+</ul></div>
 

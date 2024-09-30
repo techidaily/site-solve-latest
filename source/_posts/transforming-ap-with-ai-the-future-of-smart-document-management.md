@@ -1,7 +1,7 @@
 ---
 title: "Transforming AP with AI: The Future of Smart Document Management"
-date: 2024-08-25T23:34:11.989Z
-updated: 2024-08-26T23:34:11.989Z
+date: 2024-09-29T18:09:27.553Z
+updated: 2024-09-30T19:37:18.696Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/00c43aac4ac36494822026f46081d40ded4f30b2adeccfa477f16f86895593d2.jpg
@@ -20,6 +20,13 @@ June 07, 2023
 ![](https://static3.abbyy.com/abbyycommedia/37275/abbyy-fic-podcast-maxime-848x444.png) 
 
 Modern finance is broken, forcing finance and accounting teams to work like it was in 1985 (the year Excel was invented). In this podcast episode, ABBYY thought leader Maxime Vermeir joins Jake Jones, Multimedia Producer and Brand Influencer at [Zone & Co](https://www.zoneandco.com/company). on the Finance in the Clouds podcast. This discussion covers how artificial intelligence (AI), machine learning, intelligent document processing (IDP), and optical character recognition (OCR) work together to automate your invoice processing.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Episode transcript
 
@@ -67,10 +74,6 @@ From your perspective and from ABBYY's perspective, how can OCR, invoice scannin
 
 And for that, you need to have good insights into what your businesses are doing. And especially finance leaders need elevate the conversation in thinking about what's driving your team; what value is my team delivering? Is that entering data—or is that thinking about our processes delivering the accounting, giving insights to the business? I think it's the latter. 
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296985&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9cea886b9f44a3c2df1163730ab64994/products/copy_nero_burning_rom_cart.png" border="0">
-</a>
-<!-- affiliate ads end -->
 ### The Changing Role of the Finance Leader
 
 ABBYY Chief Financial Officer James Ritter shares insights on how finance leaders can adapt to the changing business landscape with the help of intelligent automation.
@@ -112,8 +115,12 @@ A lot of great conversation today, Max. But before we go, is there anything else
 ![](https://static3.abbyy.com/abbyycommedia/37004/maxime-vermeir_110x110-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Maxime Vermeir
 
 Senior Director of AI Strategy
@@ -123,22 +130,27 @@ With a decade of experience in product and technology, Maxime Vermeir is an entr
 Connect with Max on [LinkedIn](https://www.linkedin.com/in/maximevermeir/).
 
 <!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->
 ### Related posts
 
 ![](https://static1.abbyy.com/abbyycommedia/37736/idp-scheme-848x444-b.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [What Is Intelligent Document Processing, and How Does It Work?](https://tools.techidaily.com/abbyy/products/) 
 
 #### Subscribe for blog updates
@@ -191,8 +203,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -200,4 +210,17 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-gain-massive-viewership-with-a-small-financial-investment/"><u>[New] 2024 Approved Gain Massive Viewership with a Small Financial Investment</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-decoding-aesthetic-elements-in-podcast-art/"><u>[Updated] In 2024, Decoding Aesthetic Elements in Podcast Art</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-joint-monitor-capture-procedure/"><u>[Updated] In 2024, Joint Monitor Capture Procedure</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-maximizing-image-excellence-zero-price-tag/"><u>[Updated] In 2024, Maximizing Image Excellence, Zero Price Tag</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/202n4/"><u>『202N4』オフライバーのダウンロードエラーを解決するためのガイド</u></a></li>
+<li><a href="https://extra-support.techidaily.com/2024-approved-mastering-zooms-video-enhancements-filter-techniques/"><u>2024 Approved Mastering Zoom's Video Enhancements Filter Techniques</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/a-step-by-step-guide-to-unlocking-and-playing-any-dvd-worldwide/"><u>A Step-by-Step Guide to Unlocking and Playing Any DVD Worldwide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/android/"><u>Android携帯機器におけるビデオ再生失敗時の復旧方法</u></a></li>
+<li><a href="https://techidaily.com/how-to-install-the-latest-ios-beta-version-on-apple-iphone-6s-plus-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Install the Latest iOS Beta Version on Apple iPhone 6s Plus? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/44kk44oz44k44o844on44od44oi44gn5qsc57si77yb44ot44oh44kq44gl44kj5yaz55yf44g444gu5asj5oplusb44ks44kk44oj/"><u>インターネットで検索！ビデオから写真への変換ガイド</u></a></li>
+</ul></div>
 

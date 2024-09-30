@@ -1,63 +1,21 @@
 ---
 title: Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit
-date: 2024-09-10T10:04:25.664Z
-updated: 2024-09-11T10:04:25.664Z
+date: 2024-09-25T18:37:08.792Z
+updated: 2024-09-30T20:13:30.556Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/1e295c9ac73c2cf7b4e3fab8b993b16c3823b6dce1be16a4461eea67969cf81e.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118313/7443" target="_top" id="2118313">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118313" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118313/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY to Showcase Content IQ Platform at The AI Summit in London
 
 June 10, 2019
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY, a global leader in Content IQ technologies and solutions, today announced that it will participate at the AI Summit, London being held from 12th - 13th June 2019 at ExCeL Centre, London UK.
 
@@ -87,8 +45,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -96,4 +52,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-capture-and-customize-like-a-pro-with-these-8-editing-tools-iphoneandroid/"><u>[New] Capture & Customize Like a Pro with These 8 Editing Tools (iPhone/Android)</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-explore-prime-cardboard-compatible-vr-adventures/"><u>[New] Explore Prime Cardboard-Compatible VR Adventures</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1726029621666-1-comprehensive-guide-converting-dmg-files-to-iso-images-on-windows-and-macos-updated/"><u>1. Comprehensive Guide: Converting DMG Files to ISO Images on Windows & macOS (Updated )</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1-step-by-step-guide-downloading-content-from-rumble-platform/"><u>1. Step-by-Step Guide: Downloading Content From Rumble Platform</u></a></li>
+<li><a href="https://extra-information.techidaily.com/achieve-professionally-styled-images-top-10-luts-in-lightroom-for-2024/"><u>Achieve Professionally Styled Images Top 10 LUTs in LightRoom for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1726029511721-dvd/"><u>DVDコピー保護対策に効果的なワザを学ぶ - ディスクの制限を取り除ける方法</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-easily-get-your-favorite-anime-the-best-apps-for-using-animedaos-download-service/"><u>How to Easily Get Your Favorite Anime: The Best Apps for Using Animedao's Download Service</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-share-your-youtube-videos-on-instagram-step-by-step-guide/"><u>How to Share Your YouTube Videos on Instagram - Step-by-Step Guide</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-70-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How does the stardust trade cost In pokemon go On Honor 70 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/install-nvidia-gtx-1650-drivers-on-pc/"><u>Install Nvidia GTX 1650 Drivers on PC</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/maximizing-your-android-game-adventure-with-kinemaster-review/"><u>Maximizing Your Android Game Adventure with KineMaster Review</u></a></li>
+<li><a href="https://ai-video-translation.techidaily.com/new-elevate-your-content-with-the-best-free-video-translator-apps/"><u>New Elevate Your Content with the Best Free Video Translator Apps</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-guide-converting-ts-format-videos-into-playable-dvd-discs/"><u>Step-by-Step Guide: Converting TS Format Videos Into Playable DVD Discs</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-7-revolutionary-ai-applications-for-mastering-mathematics/"><u>Top 7 Revolutionary AI Applications for Mastering Mathematics</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transforming-video-formats-a-comprehensive-guide-on-upgrading-to-mpeg4-standard/"><u>Transforming Video Formats: A Comprehensive Guide on Upgrading to MPEG4 Standard</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/understanding-mpd-videos-and-converting-them-into-popular-file-formats-such-as-mp4-comprehensive-guide/"><u>Understanding MPD Videos and Converting Them Into Popular File Formats Such as MP4 – Comprehensive Guide</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-the-function-of-top-7-gpt-4-integrated-applications/"><u>Understanding the Function of Top 7 GPT-4 Integrated Applications</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unrestricted-conversion-guide-transforming-arf-files-into-popular-formats-like-mp4-and-mp3/"><u>Unrestricted Conversion Guide: Transforming ARF Files Into Popular Formats Like MP4 and MP3</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-bokeh-magic-top-rated-apps-for-ios-and-android-phones-for-2024/"><u>Updated Bokeh Magic Top-Rated Apps for iOS and Android Phones for 2024</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

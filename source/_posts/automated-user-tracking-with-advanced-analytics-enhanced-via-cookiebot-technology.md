@@ -1,7 +1,7 @@
 ---
 title: Automated User Tracking with Advanced Analytics - Enhanced via Cookiebot Technology
-date: 2024-08-25T23:33:48.759Z
-updated: 2024-08-26T23:33:48.759Z
+date: 2024-09-26T17:19:01.184Z
+updated: 2024-09-30T17:46:29.756Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0b6ddfcc355a034bc5a8feec71361dd4191fefb9c46706aa01bde874e33ab2b8.jpeg
@@ -152,9 +152,14 @@ Page URL
 
 Connect with us
 
-
-
 ![](https://static4.abbyy.com/abbyycommedia/32738/microsoftteams-image-20.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ABBYYのスキャンアプリに新しい名前とアイコンが追加された理由を知りたいですか？ 我々ABBYYは、今回素晴らしいニュースをお伝えします。ABBYYFineScannerはモバイル用のABBYYFineReader PDF for Mobileとして、名前が変更され、対応するデスクトップ製品と統合されました！ なぜ、大きく名前が変わるのですか、そしてあなたにとって何ができるようになりますか？ 早速、本題に入りましょう。
 
@@ -175,9 +180,24 @@ iOS ユーザ向け説明
 * **クラウドストレージ** を選択し、**Google Drive (FineReader)**をタップして下さい。  
 ![Mobile 1](https://static1.abbyy.com/abbyycommedia/32746/mobile1.png)
 * Google アカウントへサインインして下さい。
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * **自動アップロード先：**をタップして**Google Drive (FineReader)**を選択下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
 ![Mobile 2](https://static1.abbyy.com/abbyycommedia/32745/mobile2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087408/7443" target="_top" id="2087408">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 以上により、新たにスキャンを行うと、自動的にGoogle Drive へアップロードされ、ABBYY [FineReader PDF for Windows](https://tools.techidaily.com/abbyy/products/)と連携されます。
 
@@ -193,6 +213,14 @@ Android ユーザ向け説明
 * **設定**をタップし、**クラウドストレ**ージの **設定（CONFIGURE）**をタップ下さい。  
 ![Mobile 3](https://static1.abbyy.com/abbyycommedia/32744/mobile3.png)
 * **Google Drive (FineReader)**の横の**追加**をタップ下さい。
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657396/16446" target="_top" id="1657396">
+  <img src="//a.impactradius-go.com/display-ad/16446-1657396" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657396/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Google Driveのアカウントへサインインして下さい。
 * 自動アップロードをタップし、Google Drive (FineReader)を選択して下さい。
 * 望んでいる出力ファイルのフォーマット、サイズが選択されているか確認下さい。  
@@ -242,9 +270,6 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
 
 [モバイル](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ### いいね！、シェア、再投稿
 
 シェア
@@ -255,8 +280,6 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -264,4 +287,22 @@ PDF ファイルはPDFエディタで開かれます。そしてレビューし�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-beyond-likes-and-shares-concealed-factors-that-impact-story-consumption/"><u>[New] In 2024, Beyond Likes & Shares Concealed Factors That Impact Story Consumption</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-basics-to-bonus-elevate-your-cam-game/"><u>[Updated] From Basics to Bonus Elevate Your Cam Game</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/10-effective-methods-to-transform-your-dvd-into-mp4-format-a-guide-for-windows-10-11-and-mac-users/"><u>10 Effective Methods to Transform Your DVD Into MP4 Format: A Guide for Windows 10, 11 & Mac Users</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/and-dvd-avi-mp4-h26n-androidiphone-ipad-dvd/"><u>免费压缩 & 转换 DVD 到 AVI MP4 H26n : Android、iPhone及 iPad的特制无限制 DVD 转换工具 - 不用支付，只需下载</u></a></li>
+<li><a href="https://iphone-location.techidaily.com/does-pokegoplusplus-still-work-on-apple-iphone-7ipad-drfone-by-drfone-virtual-ios/"><u>Does PokeGo++ still work on Apple iPhone 7/iPad? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/dvd-shrinkdvd-shrink/"><u>DVD Shrink品質設定不能回避手段：様々なメディアフォーマットに対するDVD Shrinkの高度な使用法</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/enhance-your-inbox-with-mozilla-thunderbirds-update-52-features/"><u>Enhance Your Inbox with Mozilla Thunderbird's Update 52 Features</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/guida-alla-connettivita-garantire-la-sincronizzazione-vlc-chromecast-quando-ottiene-errori-o-non-risponde/"><u>Guida Alla Connettività: Garantire La Sincronizzazione VLC-Chromecast Quando Ottiene Errori O Non Risponde</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-realme-note-50-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Realme Note 50 | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-lava-blaze-pro-5g-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Lava Blaze Pro 5G</u></a></li>
+<li><a href="https://fox-that.techidaily.com/revive-ringing-discover-these-11-fixes-when-incoming-calls-arent-audible-on-your-iphone/"><u>Revive Ringing: Discover These 11 Fixes When Incoming Calls Aren't Audible on Your iPhone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/revolutionize-your-coding-experience-with-these-6-key-functions-of-chatgpts-interpreter/"><u>Revolutionize Your Coding Experience with These 6 Key Functions of ChatGPT's Interpreter</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-s-top-rated-vignette-makers-for-iphone-and-android-a-comprehensive-guide/"><u>Updated S Top-Rated Vignette Makers for iPhone and Android A Comprehensive Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/windows-10iso/"><u>Windows 10環境における無料ソフトウェアでISOイメージファイルをスムーズに再生する方法</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/winx-dvd-ripper-free-guide-tips-and-tricks-for-effortless-dvd-conversion/"><u>WinX DVD Ripper Free Guide: Tips and Tricks for Effortless DVD Conversion</u></a></li>
+</ul></div>
 

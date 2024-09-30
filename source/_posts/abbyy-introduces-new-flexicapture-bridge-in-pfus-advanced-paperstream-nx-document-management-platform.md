@@ -1,63 +1,21 @@
 ---
 title: ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform
-date: 2024-09-10T10:04:23.974Z
-updated: 2024-09-11T10:04:23.974Z
+date: 2024-09-25T20:24:11.214Z
+updated: 2024-09-30T19:56:41.584Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e5643a5ff8d74b4fe59c3561d40554a2f62dd894777e476ebe9274260c57e1be.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYY Introduces New FlexiCapture Bridge in PFU's Advanced Paperstream NX Document Management Platform
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Launches FlexiCapture Connector for PFU’s PaperStream NX Manager Software, Enabling Complex Automation
 
 September 30, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _Fujitsu Image Scanner users can now access ABBYY FlexiCapture technology that captures data from any type of document and powers intelligent automation._
 
@@ -117,8 +75,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -126,4 +82,28 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-boosting-social-reach-share-tiktoks-with-a-twist-of-twitter/"><u>[New] Boosting Social Reach Share TikToks with a Twist of Twitter</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-angular-adjustments-on-youtube-videos-the-ultimate-2023-guide/"><u>[New] In 2024, Angular Adjustments on YouTube Videos - The Ultimate 2023 Guide</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-steps-for-efficiently-storing-whatsapp-audio-transcripts/"><u>[Updated] 2024 Approved Steps for Efficiently Storing WhatsApp Audio Transcripts</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/2024-approved-unique-and-effective-the-best-username-options-to-dominate-tiktok/"><u>2024 Approved Unique and Effective The Best Username Options to Dominate TikTok</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/experience-tailored-browsing-sessions-through-cookiebot-integration/"><u>Experience Tailored Browsing Sessions Through Cookiebot Integration</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/feel-good-pop-anthems-by-microsoft-a-collection-specifically-chosen-for-their-positive-cheerful-melodies-and-lyrics-designed-to-boost-your-mood/"><u>Feel Good Pop Anthems by Microsoft – A Collection Specifically Chosen for Their Positive, Cheerful Melodies and Lyrics Designed to Boost Your Mood</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-data-with-cookiebot-optimize-user-experience-and-drive-engagement/"><u>Harnessing Data with Cookiebot: Optimize User Experience & Drive Engagement</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-abbyy-achieved-exclusive-selection-for-everest-groups-idp-utilizing-peak-matrix-technology/"><u>How ABBYY Achieved Exclusive Selection for Everest Group's IDP Utilizing Peak Matrix Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/iphone-scanner-app-featuring-optical-character-recognition-ocr-for-pdfjpg-files/"><u>IPhone Scanner App Featuring Optical Character Recognition (OCR) for Pdf/Jpg Files</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/limpact-de-la-technologie-docr-abbyy-sur-lexpansion-rapide-de-nickel-en-france/"><u>L'Impact De La Technologie D'OCR ABBYY Sur L'Expansion Rapide De Nickel en France</u></a></li>
+<li><a href="https://techtrends.techidaily.com/pre-purchase-considerations-unveiling-5-important-tips-when-choosing-a-gaming-console/"><u>Pre-Purchase Considerations: Unveiling 5 Important Tips When Choosing a Gaming Console</u></a></li>
+<li><a href="https://win-blog.techidaily.com/say-goodbye-to-dark-souls-3-stuttering-essential-tips-for-a-crisp-adventure/"><u>Say Goodbye to Dark Souls 3 Stuttering: Essential Tips for a Crisp Adventure</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-in-2024-from-concept-to-reality-the-10-best-music-video-agencies/"><u>Updated In 2024, From Concept to Reality The 10 Best Music Video Agencies</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-fake-gps-location-pro-and-is-it-good-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>What is Fake GPS Location Pro and Is It Good On Apple iPhone 15 Pro Max? | Dr.fone</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027190/19272" target="_top" id="2027190">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027190" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027190/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

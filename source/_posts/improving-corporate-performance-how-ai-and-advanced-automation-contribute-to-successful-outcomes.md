@@ -1,7 +1,7 @@
 ---
 title: "Improving Corporate Performance: How AI and Advanced Automation Contribute to Successful Outcomes"
-date: 2024-08-25T23:35:12.726Z
-updated: 2024-08-26T23:35:12.726Z
+date: 2024-09-23T17:01:21.337Z
+updated: 2024-09-30T18:26:29.541Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/298f3a51b5ad96cf99ca78528e1cf7576a8f7bf919402e8696c70895bc723b47.jpg
@@ -32,6 +32,19 @@ I had the privilege of participating in three roundtable discussions that explor
 * Democratization of AI
 * Three Recommendations to Fully Benefit From the Business Value of AI Technologies
 
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Digital Trust and Identity Management: Adoptions trends and challenges associated with digital identity
 
 COVID-19 accelerated the trend toward AI-powered chatbots, virtual financial assistants, and touchless customer onboarding, using AI-based biometric identity verification. This trend is confirmed in research by Cap Gemini i, which shows that 78% of consumers surveyed are planning to increase use of AI technologies, including digital identity management, in their interactions with financial services organizations. Biometric identity verification is more secure and removes onboarding friction, as evidenced in a Payments.com survey ii, which revealed that nearly 75% of US consumers “rely on their memory to recall passwords,” and 90% use the same password across many sites.
@@ -43,8 +56,18 @@ These inherent benefits notwithstanding, the roundtable discussion raised a numb
 Today, digital identity management is typically a centralized process, which is prone to cyberattacks and to privacy breaches. There is momentum toward a more [decentralized digital identity management](https://venturebeat.com/2022/02/19/decentralized-identity-solutions-could-bring-true-ownership-and-security-to-gaming/) framework that gives consumers more control over their own digital identities without dependence on third-party service providers.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.manycam.com/order/checkout.php?PRODS=17729331&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8230bea7d54bcdf99cdfe85cb07313d5/mcaffbanner600x500.png" border="0"></a>
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### AI Governance and Regulatory Frameworks: AI governance best practices designed to minimize AI bias and engender consumer trust
 
 While, according to The OECD’s tracker on national AI policies, there are over 700 AI regulatory initiatives under development in over 60 countries, there are no legislatively mandated AI regulations in place. There are, however, voluntary codes of conduct and ethical AI principles developed by international standards organizations such as the Institute of Electrical and Electronic Engineers (“IEEE”) v and the National Institute of Standards and Technology (NIST) vi. However, the AI regulatory framework is rapidly evolving. AI regulation is inevitable, as evidenced by recent developments by the European Commission, Canadian Federal Government, US Federal Trade Commission (FTC), Consumer Financial Protection Bureau (CFPB), and The Federal Reserve Board. They are all flexing their regulatory muscles through their enforcement mechanisms to protect consumers against adverse impacts arising from the increased applications that may result in discriminatory outcomes, albeit, unintended. The bottom line is that implementation of AI governance best practices is no longer a nice to have initiative, but an imperative.
@@ -52,8 +75,12 @@ While, according to The OECD’s tracker on national AI policies, there are over
 [Learn more about ABBYY's guiding principles for fostering the development, productization, and marketing of trustworthy AI.](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2144273/7443" target="_top" id="2144273">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144273" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144273/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Democratization of AI: How AI is rapidly proliferating from a highly technical domain of data scientists to line of business users
 
 The shift is toward no-code / low-code AI applications development, which according to Business Wire vii is forecast to reach $45.5 billion by 2025\. The main driver is hyper-productivity improvements, which Forrester viii estimates will improve application development productivity by a factor of 10x and deliver [faster time to value](https://www.forbes.com/sites/forbestechcouncil/2021/01/27/low-code-and-no-code-bringing-tech-and-business-together/?sh=179a23df6521). While no-code / low-code development of AI-based applications offers unprecedented speed and ease of use, it also creates potential challenges. Foremost among them is AI governance, risk, and compliance challenges due to lack of scrutiny by data scientists and IT professionals.
@@ -65,9 +92,12 @@ _Sean O'Brien_
 As Sean O’Brien ix, an academic at Yale Law School and the founder of Yale’s Privacy Lab, recently warned: “Low code can be like fast food: delivered quickly and in bright packaging, but bad for you, your community, and your ecosystem.” It is important that while no-code / low-code AI development delivers inherent efficiency improvements and time to value, its implementation must include comprehensive testing to ensure that it performs in accordance with initial design objectives, removes potential bias in the training data set, and is secure from adversarial AI attacks that can undermine AI algorithmic outcomes.
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002162&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/1_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (1 PC) Free upgrade. No monthly fees ever. 
+<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Three recommendations organizations may want to consider to fully benefit from the business value of AI technologies
 
 #### 1\. Take a data-driven approach 
@@ -76,9 +106,6 @@ A data-driven approach assists in determining where the applications of AI techn
 
 ![AI in Business - Whiteboard session with a group of people, one standing and four others sitting at table](https://static1.abbyy.com/abbyycommedia/33533/brainstorm-whiteboard-1-new.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 #### 2\. Combine task mining and process mining 
 
 Second, the combination of task mining and [process mining](https://tools.techidaily.com/abbyy/products/) can further help organizations gain insight to end-to-end process execution by visualizing the flow of work through the process stages and see the delays, bottlenecks, and outliers. Process mining gives line of business facts and figures from real-time event log data to back up their decisions, assess the value of AI automation opportunities, continuously monitor the performance of AI systems, and combine process mining with machine learning and artificial intelligence to achieve highly integrated and fully automated insights to forecast processes in their future state, and take action to ensure positive outcomes.
@@ -115,9 +142,6 @@ ix ["Low Code: Satisfying Meal or Junk Food?" by Pam Baker | Information Week, 2
 
 ![Andrew Pery ABBYY](https://static1.abbyy.com/abbyycommedia/25715/andrewpery-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 Andrew Pery
 
 Digital transformation expert and AI Ethics Evangelist for ABBYY
@@ -126,9 +150,6 @@ Andrew Pery is an AI Ethics Evangelist at intelligent automation company [ABBYY]
 
 Connect with Andrew on [LinkedIn](https://www.linkedin.com/in/andrew-pery-ll-m-cipp-c-cipp-e-3a536726/).
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4600114&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/drm-removal-feature2.png" border="0">Any DRM Removal for Mac： Remove DRM from Adobe, Kindle, Sony eReader, Kobo, etc, read your ebooks anywhere.</a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -183,8 +204,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +211,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-7-best-free-online-youtube-tag-extractors/"><u>[Updated] 2024 Approved 7 Best Free Online YouTube Tag Extractors</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/access-youtubes-full-library-get-360-video-content-for-free-in-uncompromised-uhd-and-multiple-hd-resolutions/"><u>Access YouTube's Full Library: Get 360 Video Content for Free in Uncompromised UHD and Multiple HD Resolutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/arrange-these-elements-using-alignment-tools-or-manually-adjusting-positions-on-the-timeline-pane/"><u>Arrange These Elements Using Alignment Tools or Manually Adjusting Positions on the Timeline Pane.</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/drone-for-sale-best-drones-to-buy/"><u>Drone for Sale - Best Drones to Buy</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/fix-your-ios-17-installation-glitch-discover-the-ultimate-10-techniques/"><u>Fix Your IOS 17 Installation Glitch: Discover the Ultimate 10 Techniques</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/free-downloads-top-alternatives-to-zona-software-on-macos-comprehensive-guide/"><u>Free Downloads: Top Alternatives to Zona Software on macOS - Comprehensive Guide</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-resolve-tecno-spark-20-screen-not-working-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Resolve Tecno Spark 20 Screen Not Working | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-pokemon-go-error-12-failed-to-detect-location-on-apple-iphone-13-pro-drfone-by-drfone-virtual-ios/"><u>In 2024, Pokemon Go Error 12 Failed to Detect Location On Apple iPhone 13 Pro? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ios-12-update-how-to-delete-music-from-your-iphone-without-using-itunes/"><u>IOS 12 Update: How to Delete Music From Your iPhone Without Using iTunes</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mastering-macos-photography-step-by-step-guide-to-using-photos-app/"><u>Mastering macOS Photography: Step-by-Step Guide to Using Photos App</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-nokia-150-2023-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Nokia 150 (2023) Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-guide-upload-premium-4k-content-to-iphone-while-preserving-image-clarity/"><u>Seamless Guide: Upload Premium 4K Content to iPhone While Preserving Image Clarity</u></a></li>
+<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-nokia-130-music-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Nokia 130 Music</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/step-by-step-guide-to-capturing-desktop-using-ezvid-software/"><u>Step-by-Step Guide to Capturing Desktop Using Ezvid Software</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ystery-of-youtubes-viewer-count-puzzle/"><u>The Mystery of YouTube's Viewer Count Puzzle</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/tittlinga-14-at-grafiklopande-top-fotbollsprogram-alternativ-for-windows-10-2024/"><u>Tittlinga 14 Åt Grafiklöpande - Top Fotbollsprogram Alternativ För Windows 10, 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-honor-magic-6-lite-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Honor Magic 6 Lite | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/vob-dateien-direkt-in-mp4-konvertieren-funf-minuten-reichen-fur-einen-kostenlosen-wasserspruhfreien-umgang-auf-macbooks/"><u>VOB-Dateien Direkt in MP4 Konvertieren – Fünf Minuten Reichen Für Einen Kostenlosen, Wassersprühfreien Umgang Auf MacBooks</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/anddvd/"><u>ハンドブレイカーのプロトコル：日本語化障壁を越えたダウンロード&設定から字幕追加、DVDリッピングまでガイド</u></a></li>
+</ul></div>
 

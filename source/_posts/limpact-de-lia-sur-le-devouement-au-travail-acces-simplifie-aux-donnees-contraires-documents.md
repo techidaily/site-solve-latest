@@ -1,7 +1,7 @@
 ---
 title: L'impact De L'IA Sur Le Dévouement Au Travail | Accès Simplifié Aux Données Contraires Documents
-date: 2024-08-25T23:35:15.951Z
-updated: 2024-08-26T23:35:15.951Z
+date: 2024-09-26T18:28:45.107Z
+updated: 2024-09-30T18:35:47.818Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e3f7f8209eab3a8810779d3b9fd5af99ac53d2f641a80f57ad3f83729c4706c2.jpg
@@ -47,20 +47,35 @@ Pour en apprendre davantage sur l’approche No/Low code d’ABBYY ainsi que sur
 
 Cette étude a été menée par ABBYY en collaboration avec Sapio Research en septembre-octobre 2021 auprès de 5 025 employés répartis en France, au Royaume-Uni, en Allemagne, aux États-Unis et au Japon et travaillant au sein d'entreprises comptant plus de 500 employés. L’étude porte sur les défis rencontrés par les travailleurs en matière d'extraction de données ainsi que sur l’impact de l'avènement de l'automatisation.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482"><img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826"><img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 **ABBYY**
@@ -75,8 +90,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -84,4 +97,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-exclusive-mcb-logo-designs-and-templates-for-2024/"><u>[Updated] Exclusive MCB Logo Designs and Templates for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/complete-guide-transforming-iso-files-into-full-featured-mkv-format/"><u>Complete Guide: Transforming ISO Files Into Full-Featured MKV Format</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/complete-solution-for-keepvid-malfunction-and-improved-media-retrieval-on-apples-latest-operating-system-big-sur/"><u>Complete Solution for KeepVid Malfunction and Improved Media Retrieval on Apple's Latest Operating System, Big Sur</u></a></li>
+<li><a href="https://facebook.techidaily.com/digital-detox-implementing-facebooks-break-notifications/"><u>Digital Detox: Implementing Facebook's Break Notifications</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/discover-the-leading-mac-compatible-video-editors-top-picks-apart-from-xmedia-recode/"><u>Discover the Leading Mac-Compatible Video Editors: Top Picks Apart From Xmedia Recode</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-steps-to-convert-m2ts-files-to-mp3-format-using-a-mac-compatible-tool/"><u>Easy Steps to Convert M2TS Files to MP3 Format Using a Mac-Compatible Tool</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-rapidly-share-your-2018-world-cup-footage-on-youtube-a-comprehensive-guide/"><u>How to Rapidly Share Your 2018 World Cup Footage on YouTube: A Comprehensive Guide</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-messages-from-xiaomi-by-fonelab-android-recover-messages/"><u>How to Rescue Lost Messages from Xiaomi</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/how-to-set-finder-views-for-folders-and-sub-folders/"><u>How to Set Finder Views for Folders and Sub-Folders</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-analyzing-the-goofy-journey-vhs-review-insights/"><u>In 2024, Analyzing 'The Goofy Journey' VHS Review Insights</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-your-tecno-pova-5-location-on-life360-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Your Tecno Pova 5 Location on life360 Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-vivo-y55s-5g-2023-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Vivo Y55s 5G (2023) Phone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/ios-leading-psp-emulators-five-star-selections-for-2024/"><u>IOS Leading PSP Emulators Five Star Selections for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/macx-pro-dvd-ripping-tool-securely-copy-dvd-content-to-mp4-format-for-apple-devices-download-advanced-dvd-converter-for-macos/"><u>MacX Pro DVD Ripping Tool - Securely Copy DVD Content to MP4 Format for Apple Devices, Download Advanced DVD Converter for macOS</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/online-deals-get-your-macx-dvd-ripper-pro-at-reduced-prices/"><u>Online Deals: Get Your MacX DVD Ripper Pro at Reduced Prices</u></a></li>
+<li><a href="https://common-error.techidaily.com/restore-functionality-to-your-directional-keypad-proven-remedies-for-broken-arrows/"><u>Restore Functionality to Your Directional Keypad: Proven Remedies for Broken Arrows!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/strategie-per-eseguire-facilmente-la-copia-di-un-dvd-con-uno-strumento-di-cracking-gratis/"><u>Strategie Per Eseguire Facilmente La Copia Di Un DVD Con Uno Strumento Di Cracking Gratis</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-your-tv-a-step-by-step-guide-to-restoring-netflix-sounds/"><u>Troubleshoot Your TV: A Step-by-Step Guide to Restoring Netflix Sounds</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/understanding-nas-all-you-need-to-know-about-network-attached-storage-quickly/"><u>Understanding NAS: All You Need to Know About Network Attached Storage Quickly!</u></a></li>
+</ul></div>
 

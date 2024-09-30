@@ -1,25 +1,11 @@
 ---
 title: ABBYY Enhances METRO AG Efficiency with Rapidly Accelerated Customer Payment Processes
-date: 2024-09-10T10:04:26.635Z
-updated: 2024-09-11T10:04:26.635Z
+date: 2024-09-24T18:17:00.752Z
+updated: 2024-09-30T18:26:32.001Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a500625454298afd84e9855ed4fbb6b.jpg
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136621/26400" target="_top" id="2136621">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136621" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136621/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Enhances METRO AG Efficiency with Rapidly Accelerated Customer Payment Processes
 
@@ -27,43 +13,9 @@ thumbnail: https://thmb.techidaily.com/4f252061500e08e9c2f2521977c5b0253a5006254
 
 Wholesale & Retail Trade | Accounts Payable Automation
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBYY Accelerates METRO AG Companies’ Wholesale Customer Payments up to 90% Faster
 
 ![pathner logo](https://content.abbyy.com/-/media/project/abbyy/abbyy/logos-white/en/183283.png?h=40&iar=0&w=120)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
@@ -73,29 +25,23 @@ Wholesale & Retail Trade | Accounts Payable Automation
 
 ![METRO Digital and ABBYY](https://static3.abbyy.com/abbyycommedia/37641/metro-digital-case-study-intelligent-document-processing-en_tn_556x303.jpg) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Customer Overview
 
 ![METRO Digital](https://static5.abbyy.com/abbyycommedia/36404/logo_metrodigital.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name     | METRO Digital                           |
 | -------- | --------------------------------------- |
@@ -148,19 +94,12 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [![Learn more about ABBYY solutions for accounts payable automation](https://static4.abbyy.com/abbyycommedia/14351/1-accounts-payable.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY Invoice Processing Solutions](https://tools.techidaily.com/abbyy/products/) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105859/7443" target="_top" id="2105859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105859" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105859/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
@@ -168,19 +107,12 @@ In addition, ABBYY's solution provides significantly more of the additional info
 
 [Read the document](https://static1.abbyy.com/abbyycommedia/37651/metro-digital-case-study-intelligent-document-processing-en.pdf "PDF Version") 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Ready to talk to an expert?
 
@@ -194,8 +126,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -203,4 +133,20 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-expert-shortcuts-for-savvy-screen-capture-on-your-pc/"><u>[New] 2024 Approved Expert Shortcuts for Savvy Screen Capture on Your PC</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-the-fundamentals-of-crafting-high-quality-videos-for-instagram-audiences/"><u>[New] 2024 Approved The Fundamentals of Crafting High-Quality Videos for Instagram Audiences</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-master-instagram-livestreams-with-ease-your-complete-guide-to-obs-usage/"><u>[Updated] 2024 Approved Master Instagram Livestreams with Ease Your Complete Guide to OBS Usage</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/3-ways-for-android-pokemon-go-spoofing-on-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>3 Ways for Android Pokemon Go Spoofing On Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ipod-dvd-macdvdipoditunesmp3/"><u>無料マック用 iPod DVDライター - Mac上でセキュリティコピー保護付きDVDをiPod/iTunes/MP3形式に変換する</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/elevating-online-presence-essential-strategies-for-proficient-web-page-seo-techniques/"><u>Elevating Online Presence: Essential Strategies for Proficient Web Page SEO Techniques</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/expert-insights-from-toms-tech-analysis-your-guide-to-modern-gadgets/"><u>Expert Insights From Tom's Tech Analysis - Your Guide to Modern Gadgets</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-tecno-camon-30-pro-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Tecno Camon 30 Pro 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/pro-gamers-guide-fixing-latency-and-improving-performance-in-escape-from-tarkov/"><u>Pro Gamer's Guide: Fixing Latency and Improving Performance in Escape From Tarkov</u></a></li>
+<li><a href="https://win-able.techidaily.com/resistance-management/"><u>Resistance Management</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-tutorial-on-implementing-forced-or-softsub-titles-for-dvd-movie-files/"><u>Step-by-Step Tutorial on Implementing Forced or Softsub Titles for DVD Movie Files</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/tips-for-using-snap-camera-for-remote-team-collaboration/"><u>Tips for Using Snap Camera for Remote Team Collaboration</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/windowstsutaya/"><u>マックとWindowsのどちらでも対応！レンタル映像のコピー・ダビングガイド：TSUTAYA、ゲオ向けトリック!</u></a></li>
+</ul></div>
 

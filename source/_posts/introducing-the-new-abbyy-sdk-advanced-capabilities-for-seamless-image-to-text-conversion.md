@@ -1,69 +1,21 @@
 ---
 title: "Introducing the New ABBYY SDK: Advanced Capabilities for Seamless Image-to-Text Conversion"
-date: 2024-09-10T10:04:25.744Z
-updated: 2024-09-11T10:04:25.744Z
+date: 2024-09-25T16:46:39.084Z
+updated: 2024-09-30T16:44:51.073Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ba02d2067d54837e1bd869f645984fb69141a6a34b2694ff1529f9b0220b04e.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Introducing the New ABBYY SDK: Advanced Capabilities for Seamless Image-to-Text Conversion
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY Announces Receipt Capture SDK
 
 June 28, 2016
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121331/18498" target="_top" id="2121331">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121331" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121331/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 _**Developers Can Capture New Business, New Value Quickly and Easily**_ 
 
@@ -111,8 +63,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -120,4 +70,24 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/updated-overcoming-airborne-vibration-phenomenon/"><u>[Updated] Overcoming Airborne Vibration Phenomenon</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-immersion-in-metaverse-leading-hmds-reviewed/"><u>2024 Approved Immersion in Metaverse Leading HMDs Reviewed</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/comparing-claude-and-chatgpt-the-top-choice-for-daily-conversations/"><u>Comparing Claude and ChatGPT: The Top Choice for Daily Conversations</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-steps-convert-youtube-videos-to-mp3-format/"><u>Easy Steps: Convert YouTube Videos to MP3 Format</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/find-the-ultimate-replacements-for-leawo-dvd-ripping-software-expert-reviews-and-comparisons/"><u>Find the Ultimate Replacements for Leawo DVD Ripping Software: Expert Reviews and Comparisons</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/guide-saving-images-from-your-word-doc-as-pdf/"><u>Guide: Saving Images From Your Word Doc as PDF</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-to-optimally-digitize-your-dvd-films-for-long-term-storage-solutions/"><u>How to Optimally Digitize Your DVD Films for Long-Term Storage Solutions</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-sharefake-location-on-whatsapp-for-samsung-galaxy-a23-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share/Fake Location on WhatsApp for Samsung Galaxy A23 5G | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ipadwav/"><u>IPad上でWAVファイルを再生するための効果的な手法</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/new-free-green-screen-software-for-android-and-ios-top-picks/"><u>New Free Green Screen Software for Android and iOS Top Picks</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141688/17094" target="_top" id="2141688">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141688" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141688/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

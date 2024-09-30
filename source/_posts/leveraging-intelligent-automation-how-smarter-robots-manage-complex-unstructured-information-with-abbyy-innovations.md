@@ -1,43 +1,15 @@
 ---
 title: "Leveraging Intelligent Automation: How Smarter Robots Manage Complex, Unstructured Information with ABBYY Innovations"
-date: 2024-09-10T10:04:26.405Z
-updated: 2024-09-11T10:04:26.405Z
+date: 2024-09-23T20:31:36.706Z
+updated: 2024-09-30T17:01:05.299Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/e6d973791325054ad0d7f0fcd99fd3ff0a56a44316e750df20403e0686bc2309.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135412/19272" target="_top" id="2135412">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135412" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135412/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Leveraging Intelligent Automation: How Smarter Robots Manage Complex, Unstructured Information with ABBYY Innovations
 
 [Back to ABBYY Blog](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Smarter Robots Handle the Unstructured Content
 
@@ -47,20 +19,6 @@ December 19, 2018
 
 ![How Smarter Robots Handle the Unstructured Content | ABBYY Blog Post](https://static1.abbyy.com/abbyycommedia/25326/9908e_blog_blueprism-intro_smarter-robots-handle-the-unstructured-content_blog.png) 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 With enterprise adoption of robotic process automation (RPA) set for hyper-growth, providing the technology with human-like capabilities to handle unstructured content remains a key challenge. In this piece, ABBYY's Bill Galusha looks at how Blue Prism is making its robots smarter with the use of intelligent capture technologies.
 
 Please click [here](https://www.blueprism.com/blog/smarter-digital-workers-to-handle-unstructured-content) to read the article that Bill Galusha has written especially for ABBYY’s strategic partner Blue Prism’s Blog.
@@ -69,41 +27,14 @@ Please click [here](https://www.blueprism.com/blog/smarter-digital-workers-to-ha
 
 ![Bill Galusha ABBYY](https://static5.abbyy.com/abbyycommedia/25718/billgalusha-99x99.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="2127886">
-					<video width="576" height="1024" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 Bill Galusha
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
+  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Like, share or repost
 
@@ -159,8 +90,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -168,4 +97,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-copypaste-dilemma-sudden-vid-deletion/"><u>[Updated] 2024 Approved Copypaste Dilemma Sudden Vid Deletion</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-diving-deep-into-lyric-video-designs-powered-by-lyric-video-maker/"><u>[Updated] 2024 Approved Diving Deep Into Lyric Video Designs, Powered by Lyric Video Maker</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-capturing-life-one-click-at-a-time-the-ultimate-guide-for-documenting-your-sims-journey-in-sims-4/"><u>[Updated] Capturing Life, One Click at a Time The Ultimate Guide for Documenting Your Sim's Journey in Sims 4</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-enhancing-outreach-with-strategic-partner-selection-on-youtube/"><u>[Updated] Enhancing Outreach with Strategic Partner Selection on YouTube</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-getting-started-a-primer-on-screencastify-use/"><u>[Updated] Getting Started A Primer on Screencastify Use</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722970562183-download-the-qualcomm-atheros-ar938x-driver-for-free-quick-and-simple/"><u>Download the Qualcomm Atheros AR938X Driver for Free – Quick and Simple</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-user-experience-and-analytics-via-intelligent-tracking-the-cookiebot-difference-in-data-driven-strategies/"><u>Enhance User Experience & Analytics via Intelligent Tracking - The Cookiebot Difference in Data-Driven Strategies</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-user-experience-with-cookiebot-driven-personalization-strategies/"><u>Enhance User Experience with Cookiebot-Driven Personalization Strategies</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-tracking-with-cookiebot-technology/"><u>Enhanced Conversion Tracking with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-site-performance-with-cookiebot-technology/"><u>Enhanced Site Performance with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/evaluating-the-efficiency-of-your-policy-administration-cycle-insights-from-abbyys-electronic-document-management/"><u>Evaluating the Efficiency of Your Policy Administration Cycle: Insights From ABBYY's Electronic Document Management</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-abbyys-innovative-showcase-content-iq-platform-unveiled-at-londons-premier-ai-summit/"><u>Exploring ABBYY's Innovative Showcase Content IQ Platform Unveiled at London's Premier AI Summit</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-the-power-of-process-mining-in-healthcare-industry-an-insightful-guide/"><u>Exploring the Power of Process Mining in Healthcare Industry - An Insightful Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-user-experience-and-seo-performance/"><u>Harness the Power of Cookiebot for Enhanced User Experience & SEO Performance</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/how-mobile-solutions-propel-expense-management-towards-seamless-financial-automation-insights-from-the-abbyy-perspective/"><u>How Mobile Solutions Propel Expense Management Towards Seamless Financial Automation: Insights From the ABBYY Perspective</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-by-checkra1n-even-on-iphone-13-pro-if-youve-tried-everything-by-drfone-ios/"><u>How To Bypass iCloud By Checkra1n Even On iPhone 13 Pro If Youve Tried Everything</u></a></li>
+<li><a href="https://video-capture.techidaily.com/in-2024-ultimate-guide-to-choosing-video-fps-30fps-vs-60fps/"><u>In 2024, Ultimate Guide to Choosing Video FPS 30Fps Vs. 60Fps</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/noticing-lack-of-friend-requests-for-2024/"><u>Noticing Lack of Friend Requests for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/1725286268904-webdvd/"><u>デジアーティソフトウェアの公式Webページで学ぶDVDコピー技術とヒント</u></a></li>
+</ul></div>
 

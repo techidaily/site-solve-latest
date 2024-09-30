@@ -1,75 +1,21 @@
 ---
 title: "Cookiebot-Enabled Customization: Enhancing Your Website's Personalization"
-date: 2024-09-10T10:04:25.490Z
-updated: 2024-09-11T10:04:25.490Z
+date: 2024-09-26T19:39:10.945Z
+updated: 2024-09-30T17:54:41.041Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ad5375273ed5273cf93923e35b6ab94c30b89301141494859d6be3ab7df15629.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Cookiebot-Enabled Customization: Enhancing Your Website's Personalization
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY enrichit sa bibliothèque Open Source NeoML
 
 22 juin 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1304648">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * _NeoML offre des performances accrues de 50 % par rapport aux bibliothèques Open Source de Machine Learning existantes.1_
 * _Le langage de programmation Python, plus simple à appréhender, est désormais compatible avec NeoML, en plus de C++, Java et Objective-C qui étaient déjà pris en charge._
@@ -110,8 +56,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -119,4 +63,26 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/024-approved-the-next-generation-of-video-communities-post-youtube/"><u>[New] 2024 Approved The Next Generation of Video Communities Post-YouTube</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-harnessing-skypes-potential-on-pc-and-mac-with-ease/"><u>[Updated] Harnessing Skype's Potential on PC & Mac with Ease</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-the-pathway-to-popularity-masterful-igtv-video-posts/"><u>[Updated] The Pathway to Popularity Masterful IGTV Video Posts</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-expert-guide-to-crafting-immersive-experiences-through-instagram-vids/"><u>2024 Approved Expert Guide to Crafting Immersive Experiences Through Instagram Vids</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722971581564-effortless-installation-get-your-latest-amd-ati-radeon-hd-graphics-card-drivers-installed-today/"><u>Effortless Installation: Get Your Latest AMD ATI Radeon HD Graphics Card Drivers Installed Today!</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/essential-android-tools-for-video-recording-for-2024/"><u>Essential Android Tools for Video Recording for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/incremental-sound-dampening-strategy-for-2024/"><u>Incremental Sound Dampening Strategy for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/obs5/"><u>OBSスタジオ動画録画失敗時の効果的解決策トップ5</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/pcwindows/"><u>PCで簡単に撮影した画面を編集する方法【Windows版】</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/simple-steps-to-slice-through-your-videos-a-quick-guide/"><u>Simple Steps to Slice Through Your Videos: A Quick Guide</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/sndwav/"><u>SNDファイルからWAVへ:パソコン利用者向け最適化手法</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/understanding-chatgpts-performance-a-look-at-why-chatgpt-4-lags-behind-chatgpt-35/"><u>Understanding ChatGPT's Performance: A Look at Why ChatGPT-4 Lags Behind ChatGPT- 3.5</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

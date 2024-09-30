@@ -1,7 +1,7 @@
 ---
 title: Experience Tailored Browsing Sessions Through Cookiebot Integration
-date: 2024-08-25T23:33:23.554Z
-updated: 2024-08-26T23:33:23.554Z
+date: 2024-09-23T17:02:55.548Z
+updated: 2024-09-30T19:37:43.933Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/07b2aab86c7b38cc417b46120335b85009ee66f18ed61940d702b12e24cb4c65.jpg
@@ -35,6 +35,13 @@ Those surveyed are looking for an [intelligent banking automation solution](http
 
 The unanimous comment we heard from survey respondents was that they need speed and simplicity, like what can be achieved through an easy drag-and-drop approach to automating document processing.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Turn documents into data with pre-trained, ready-to-use skills
 
 Financial institutions can automate document-intensive processes like [account opening](https://tools.techidaily.com/abbyy/products/) and [KYC](https://tools.techidaily.com/abbyy/products/) by extracting data from paper-based forms with [Intelligent Document Processing (IDP)](https://tools.techidaily.com/abbyy/products/), that easily integrates with the core banking systems. IDP uses artificial-intelligence-based technologies to process structured, semi-structured, and unstructured documents. 
@@ -43,11 +50,15 @@ IDP can replace manual processing–enabling not only automation, but also creat
 
 ![colleagues using IDP for intelligent automation in banking](https://static1.abbyy.com/abbyycommedia/35503/financialservices-content-848x444.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Implementing a banking digital transformation strategy leveraging low-code / no-code solutions can really change the game, thanks to the advancements of artificial intelligence (AI), machine learning (ML), and natural language processing (NLP).
 
-<!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-970x90.gif" border="0"></a>
-<!-- affiliate ads end -->
 ## Leverage the power of the Marketplace
 
 According to [Forrester](https://www.forrester.com/report/How-To-Succeed-With-Marketplace-Business-Models-In-Financial-Services/RES118694), successful financial institutions will take advantage of partners’ capabilities to move quickly and harness the innovation of others. That is precisely the idea behind the new [ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), the first digital marketplace for processing and understanding enterprise documents that provides a rich collection of skills, connectors, and assets. Four of the top U.S. banks and many cloud-based companies are providing their business users and citizen developers the best-in-class document and content processing with our easy-to-use, configurable, and pluggable platform, which is ready to use within minutes.
@@ -61,13 +72,27 @@ According to [Forrester](https://www.forrester.com/report/How-To-Succeed-With-Ma
 ![Cheryl Chiodi ABBYY](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1300375&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-15_%281%29.jpg" border="0"></a>
+<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Cheryl Chiodi
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975503">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975503.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975503">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975503.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975503%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975503/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -122,8 +147,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -131,4 +154,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-obs-studio-basics-full-guide-to-ps4-game-recording-for-2024/"><u>[New] Obs Studio Basics - Full Guide to PS4 Game Recording for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/nlocking-subscriber-success-youtubes-best-practices-for-2024/"><u>[New] Unlocking Subscriber Success YouTube's Best Practices for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-expert-tips-for-streamlining-mov-recordings-on-win10/"><u>[Updated] 2024 Approved Expert Tips for Streamlining MOV Recordings on Win10</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-in-the-classroom-best-practices-and-tips-for-educators/"><u>[Updated] YouTube in the Classroom Best Practices and Tips for Educators</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1725288902560-iso/"><u>無料のISOマウントツールとして推薦！イメージファイルを簡単に利用可能</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/decouvrez-la-technique-pour-ajouter-des-autres-titres-aux-videos-mp4-une-explication-facile/"><u>Découvrez La Technique Pour Ajouter Des Autres Titres Aux Vidéos MP4 : Une Explication Facile!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/hd-video-format-converter-for-mac-seamless-transformation-of-avchd-m2ts-and-more-to-apple-devices/"><u>HD Video Format Converter for Mac – Seamless Transformation of AVCHD, M2TS & More to Apple Devices</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, List of Pokémon Go Joysticks On Infinix GT 10 Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/microsoft-teams-sessions-recording-for-2024/"><u>Microsoft Teams Sessions Recording for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-6-ways-to-transfer-text-messages-from-vivo-y78-5g-to-other-android-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 6 Ways to Transfer Text Messages from Vivo Y78 5G to Other Android Devices | Dr.fone</u></a></li>
+<li><a href="https://program-issues.techidaily.com/troubleshooting-far-cry-6-how-to-fix-pc-launch-issues/"><u>Troubleshooting Far Cry 6: How to Fix PC Launch Issues</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlock-your-potential-with-these-5-must-have-jillian-michaels-dvd-series-ideal-for-newbies-and-pro-athletes-alike/"><u>Unlock Your Potential with These 5 Must-Have Jillian Michaels DVD Series, Ideal for Newbies and Pro Athletes Alike</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/what-steps-should-you-take-if-the-wii-cannot-recognize-cds-or-dvds/"><u>What Steps Should You Take if the Wii Cannot Recognize CDs or DVDs?</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/windows-10dvddvd/"><u>Windows 10でDVD再生失敗の理由と解決手順：レンタル、店頭、自作のDVD対策</u></a></li>
+</ul></div>
 

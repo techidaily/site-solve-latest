@@ -1,7 +1,7 @@
 ---
 title: "Transition to Eco-Friendly Solutions: PwC Professionals Utilize ABBYY Mobile Software for Document Management"
-date: 2024-08-25T23:33:38.573Z
-updated: 2024-08-26T23:33:38.573Z
+date: 2024-09-25T18:01:06.465Z
+updated: 2024-09-30T17:44:21.844Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/76e26b163e9495753f19f00ef08b09cc2666b4e5eaf0daac99a2adb1ba5e0f35.jpg
@@ -19,11 +19,25 @@ BPO and Shared Services | Mobile Capture
 
 [Back to Customer stories](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## PwC Specialists Go Paperless with ABBYY Mobile Application
 
 BPO and Shared Services | Mobile Capture 
 
 ![](https://static1.abbyy.com/abbyycommedia/21960/pwc_02.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #### Customer Overview
 
@@ -92,9 +106,23 @@ PwC specialists initially used the mobile application for audit and business con
 
 [![ABBYY mobile capture solutions](https://static1.abbyy.com/abbyycommedia/14353/3-mobile-capture.jpg)](https://tools.techidaily.com/abbyy/products/) [ABBYY mobile capture solutions](https://tools.techidaily.com/abbyy/products/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Read more](https://tools.techidaily.com/abbyy/products/) 
 
 [![PDF version](https://static2.abbyy.com/abbyycommedia/21961/pwc_03.png)](https://static4.abbyy.com/abbyycommedia/23949/case-study-pwc-en-10731.pdf "PDF version") [PDF version](https://static4.abbyy.com/abbyycommedia/23949/case-study-pwc-en-10731.pdf "PDF version") 
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Download here](https://static4.abbyy.com/abbyycommedia/23949/case-study-pwc-en-10731.pdf "PDF version") 
 
@@ -106,13 +134,6 @@ Share  True ?  : ""
 
 [Find your ABBYY office](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### Ready to talk to an expert?
 
 We'd love to help you along your automation journey.
@@ -125,8 +146,6 @@ We'd love to help you along your automation journey.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -134,4 +153,21 @@ We'd love to help you along your automation journey.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-resolving-common-instagram-video-glitches/"><u>[New] 2024 Approved Resolving Common Instagram Video Glitches</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-saving-your-desktop-display-with-free-tech-tools/"><u>[New] Saving Your Desktop Display with Free Tech Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/winx-videoaiai-winxvideo-ai-tech-solutions/"><u>與WinX VideoAI相關的AI技術解決方案 - Winxvideo AI Tech Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/compresseur-video-ultra-haute-definition-reduire-de-90-la-taille-des-fichiers-en-4k-8k-and-plus/"><u>Compresseur Vidéo Ultra Haute Définition : Réduire De 90% La Taille Des Fichiers en 4K, 8K & Plus</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/dall-e-3s-recent-upgrade-introducing-edit-tools-with-more-development-needed/"><u>DALL-E 3'S Recent Upgrade: Introducing Edit Tools with More Development Needed</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-tips-on-how-to-insert-subtitles-into-mp4-movies-for-better-accessibility/"><u>Easy Tips on How to Insert Subtitles Into MP4 Movies for Better Accessibility</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/guide-simple-et-facile-pour-transferer-des-fichiers-dvd-en-haute-definition-sur-mac/"><u>Guide Simple Et Facile Pour Transférer Des Fichiers DVD en Haute Définition Sur Mac</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-honor-x8b-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Honor X8b? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-location-on-tiktok-to-see-more-content-on-your-motorola-moto-g73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Location on TikTok to See More Content On your Motorola Moto G73 5G | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prevent-cross-site-tracking-on-apple-iphone-12-and-browser-drfone-by-drfone-virtual-ios/"><u>In 2024, Prevent Cross-Site Tracking on Apple iPhone 12 and Browser | Dr.fone</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/mastering-screen-recording-in-adobe-captivate-a-step-by-step-guide-for-2024/"><u>Mastering Screen Recording in Adobe Captivate A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-guide-burning-dvds-from-iso-files-with-reliable-dvd-copy-tools/"><u>Step-by-Step Guide: Burning DVDs From ISO Files with Reliable DVD Copy Tools</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/unlocking-video-dominance-hashtag-hacks-exposed/"><u>Unlocking Video Dominance Hashtag Hacks Exposed</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1725288256068-windows-10/"><u>Windows 10 互換性あり、セキュリティ確保のため無料でお薦め！</u></a></li>
+</ul></div>
 

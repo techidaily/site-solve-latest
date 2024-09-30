@@ -1,7 +1,7 @@
 ---
 title: "Comprendre La Distinction Entre OCR Et IDP: Une Explication Détaillée"
-date: 2024-08-25T23:33:50.973Z
-updated: 2024-08-26T23:33:50.973Z
+date: 2024-09-25T19:37:08.718Z
+updated: 2024-09-30T20:12:20.300Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6b564cfcc68d7fa9fa2ebcc8ac34b00c6e2d610d2ee82b6185002beb469144e3.jpg
@@ -38,8 +38,12 @@ Avant l’OCR, il fallait taper manuellement le texte pour saisir les données d
 ![](https://static1.abbyy.com/abbyycommedia/37740/ds-66-ocr-idp-image-1b.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Comment cela fonctionne-t-il
 
 L’OCR commence par un dossier dont vous voulez extraire des informations. Il peut s’agir du scan d’un document, d’un PDF, ou encore de documents pris en photo. Les plateformes modernes d’OCR peuvent automatiquement améliorer la qualité, ajouter du contraste, et renforcer la résolution pour améliorer la justesse de la reconnaissance. Puis, des algorithmes d’OCR utilisent des modèles d’extraction déjà formés pour identifier les mots et les lignes sur une image et extraire chaque caractère reconnu.
@@ -60,17 +64,18 @@ Les données extraites sont ensuite comparées à un ensemble de modèles et de 
 Parmi les exemples habituels d’utilisation de l’OCR, il y a l’usage qu’en font des entreprises pour faciliter leur conformité au droit civil et au droit du travail, en convertissant de grandes quantités de documents papier et numériques en formats accessibles et interrogeables ; les cabinets juridiques qui convertissent des contrats papier en formats numériques, modifiables et interrogeables pour l’eDiscovery (investigations en ligne) ainsi que pour l’analyse de données ; les entreprises de santé qui transfèrent les dossiers des patients dans leurs systèmes informatiques pour être en conformité avec la norme HIPAA ; les bibliothèques et les archives qui conservent des documents historiques en format numérique. Tout cela permet aux employés d’une structure donnée d’effectuer leurs différentes tâches quotidiennes liées à des documents de façon efficace, aux développeurs de logiciels de créer des services de contenu, des archives numériques, des systèmes de gestion des documents (DMS), des solutions ECM (pour la gestion des contenus dans l’entreprise), et bien d’autres.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<a href="https://25home.pxf.io/c/5597632/2148635/16836" target="_top" id="2148635">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148635" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148635/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Qu’est-ce que l’IDP ?
 
 [Le traitement intelligent des documents](https://tools.techidaily.com/abbyy/products/) **(IDP) permet de traiter directement les documents en capturant, extrayant et traitant automatiquement les données contenues dans les documents de l’entreprise,**  et ce pour quasiment n’importe quel processus, dans n’importe quel secteur d’activité.
 
 ![](https://static1.abbyy.com/abbyycommedia/37779/ds-122-how-idp-works-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920047/21774" target="_top" id="1920047"><img src="//a.impactradius-go.com/display-ad/21774-1920047" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920047/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Comment cela fonctionne-t-il 
 
 L’IDP utilise la reconnaissance optique de caractères (OCR) pour convertir du texte imprimé ou manuscrit en texte dactylographié/lisible par des machines. L’IDP utilise également des techniques d’intelligence artificielle (IA) et de machine learning (ML) pour lire, comprendre et traiter les données structurées, semi-structurées ou non structurées contenues dans des documents, comme le ferait un humain.
@@ -98,8 +103,12 @@ La technologie IDP reflète fidèlement la façon dont les humains comprennent e
 * **Intégration facile aux flux de travail de l’entreprise.**  L’IDP peut être intégré aux autres systèmes numériques et workflows (flux de travail) pour permettre une numérisation fluide et efficace des processus métier dans tous les départements de toute l’entreprise.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3546200&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.binteko.com/sites/default/files/banner01_468x60a.gif" border="0"></a>
+<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Quelle est la différence entre l’OCR et l’IDP ?
 
 L’OCR existe depuis longtemps et est connue en tant que technologie liée à la capture de données. **L’OCR existe depuis longtemps et est connue en tant que technologie liée à la capture de données.** 
@@ -118,8 +127,12 @@ Par exemple, il peut lire une facture, en extraire le contenu pour le comparer a
 | **Exemples-types d’utilisation** | Met à disposition un texte lisible par les machines comme base pour : la conversion en PDF et l’archivage numérique / la recherche eDiscovery et la recherche de pointe / les techniques scientifiques numériques et l’analyse de données avec le traitement intelligent des documents (IDP) | Automatisation de tout processus métier centré sur les documents : automatisation de la comptabilité fournisseur, onboarding client / KYC, traitement des prêts, automatisation des documents de transport et de logistique, traitement des sinistres dans l’assurance                                                                              |
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Exemples de l’OCR et de l’IDP dans les processus métier
 
 #### Traitement des factures
@@ -146,9 +159,6 @@ Grâce au traitement intelligent des documents, vous pouvez éliminer les goulot
 
 [Demander une démo](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## FAQ
 
 [L’IDP utilise-t-il l’OCR ?](https://tools.techidaily.com/abbyy/products/)
@@ -189,6 +199,13 @@ Les technologies OCR (reconnaissance optique de caractères) et IDP (traitement 
 
 ![Slavena Hristova ABBYY](https://static4.abbyy.com/abbyycommedia/25713/slavenahristova-99x99.png)
 
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Slavena Hristova
 
 Directrice du Marketing Produit, groupe Vantage chez ABBYY
@@ -213,8 +230,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -222,4 +237,18 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/updated-vlc-recorder-functionality-check-for-2024/"><u>[Updated] VLC Recorder Functionality Check for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/convert-your-media-files-top-8-no-cost-methods-from-mts-to-mp4-on-pc-and-mac/"><u>Convert Your Media Files: Top 8 No-Cost Methods From MTS to MP4 on PC & Mac</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/does-redmi-12-5g-has-native-hevc-support-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Does Redmi 12 5G has native HEVC support?</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-winxvideo-ai-complete-software-suite-for-windows-7-free-trial-available/"><u>Download Winxvideo AI Complete Software Suite for Windows 7 - Free Trial Available</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/expert-walkthrough-navigating-the-winx-advanced-video-converter-for-mac-a-comprehensive-tutorial-and-usage-manual/"><u>Expert Walkthrough: Navigating the WinX Advanced Video Converter for Mac – A Comprehensive Tutorial and Usage Manual</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-the-thrills-of-fifa-18-on-xbox-and-windows-11-your-ultimate-guide/"><u>Exploring the Thrills of FIFA 18 on Xbox and Windows 11 - Your Ultimate Guide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-oppo-a56s-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Oppo A56s 5G | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-xiaomi-14-ultra-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Xiaomi 14 Ultra FRP Bypass</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/maximizing-visual-impact-on-facebook-by-linking-with-pinterest-a-quick-tutorial/"><u>Maximizing Visual Impact on Facebook by Linking with Pinterest – A Quick Tutorial</u></a></li>
+<li><a href="https://win-dash.techidaily.com/msi-x470-motherboard-full-driver-installation-file-available-for-download/"><u>MSI X470 Motherboard Full Driver Installation File Available for Download</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshoot-steam-disk-writing-problems-with-these-easy-fixes/"><u>Troubleshoot Steam Disk Writing Problems with These Easy Fixes</u></a></li>
+</ul></div>
 

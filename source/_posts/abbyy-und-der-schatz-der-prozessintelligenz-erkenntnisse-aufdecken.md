@@ -1,7 +1,7 @@
 ---
 title: "ABBYY Und Der Schatz Der Prozessintelligenz: Erkenntnisse Aufdecken"
-date: 2024-08-25T23:34:19.514Z
-updated: 2024-08-26T23:34:19.514Z
+date: 2024-09-24T18:21:57.918Z
+updated: 2024-09-30T16:39:23.666Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/29ac8237603a8a16889982067f296c3f071e4f84b086086a9248bc69fcf254fa.jpg
@@ -34,8 +34,12 @@ Gehe direkt zu:
 **Process Intelligence ist eine Kombination von datengesteuerten Fähigkeiten, die der Analyse und Verbesserung von Geschäftsabläufen dienen.**  Sie nutzt die Daten aus unternehmenseigenen Informationssystemen, um Muster und Erkenntnisse zu finden, die den Weg zu neuen betrieblichen Effizienzen weisen. **Die fünf wesentlichen Säulen für nachhaltige Process Intelligence sind Prozesserkennung, Prozessanalyse, Prozessüberwachung, Prozessvorhersage und Prozesssimulation.**  Unternehmen können die daraus resultierenden Erkenntnisse nutzen, um ihre Prozesse zu erkennen, zu verstehen und effektiver zu verwalten.
 
 <!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Die fünf Säulen von Process Intelligence
 
 #### 1\. Prozesserkennung
@@ -76,6 +80,13 @@ Durch die Nutzung von Process Intelligence können Unternehmen ein breites Spekt
 
 **Kosteneinsparungen** Durch die Ermittlung und Beseitigung von Prozessineffizienzen können Unternehmen ihre Betriebskosten senken. Process Intelligence ermöglicht eine kosteneffiziente Ressourcenzuweisung und hilft, unnötige Kosten zu vermeiden, die durch manuelle Eingriffe oder Fehler entstehen.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Anwendungsfälle für Process Intelligence
 
 In jeder Branche ermöglicht [die Integration von Process Intelligence in eine digitale Transformationsstrategie](https://tools.techidaily.com/abbyy/products/) den Unternehmen, die zukünftigen Auswirkungen von vorgeschlagenen Änderungen zu bewerten, den Übergang effektiver zu gestalten, die Leistung der implementierten Automatisierungsschritte zu gewährleisten und eine Feedbackschleife für kontinuierliche Verbesserungen zu schaffen. Unternehmen aller Branchen nutzen Process Intelligence, um in einer Vielzahl von Anwendungsfällen bessere Ergebnisse zu erzielen.
@@ -88,13 +99,24 @@ Krankenhäuser und andere Gesundheitsdienstleister können Process Intelligence 
 
 Process Intelligence ermöglicht es Banken und anderen Finanzinstituten, die digitale Transformation voranzutreiben und Prioritäten bei der Risikokontrolle und der Einhaltung von Vorschriften zu unterstützen. Sie können Transaktionsdaten nahezu in Echtzeit analysieren, um den Kundenservice zu verbessern, die Genauigkeit der Berichterstattung zu erhöhen und das Risiko kostspieliger Fehler zu verringern. Prozessüberwachung hilft ihnen, sicherzustellen, dass SLAs, Compliance-Mandate und gesetzliche Anforderungen eingehalten werden, und verringert so das Risiko kostspieliger Fehler, die andernfalls übersehen werden könnten.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Versicherungen
 
 Versicherungsunternehmen können prädiktive Analysen nutzen, um Risikobewertung, Risikoauswahl und Risikoübernahme-Entscheidungen zu beschleunigen. Sie können die Einhaltung von Vorschriften durch automatisierte Überwachung und Abhilfemaßnahmen verbessern und gleichzeitig Produktivitätssteigerungen erzielen, indem sie eine durchgehende Datenverarbeitung ermöglichen. Prozessanalysen bieten einen Mehrwert für interne Mitarbeitende, Vertragsregulierer, externe Supportorganisationen und andere Partner.
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137219/26400" target="_top" id="2137219">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137219" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137219/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Verknüpfung von Process Intelligence mit intelligenter Prozessautomatisierung
 
 Unter digitaler Transformation versteht man die Integration digitaler Technologien in alle Bereiche eines Unternehmens, wodurch sich die Art und Weise, wie das Unternehmen arbeitet und seinen Kundinnen und Kunden einen Mehrwert bietet, grundlegend ändert. Erfolgreiche Transformationsaktivitäten beinhalten ein radikales Überdenken der Art und Weise, wie ein Unternehmen Technologie, Mitarbeitende und Prozesse einsetzt, um die Unternehmensperformance grundlegend zu verändern. [Intelligente Prozessautomatisierung (IPA)](https://www.abbyy.com/de/solutions/intelligent-process-automation-ipa/?itm%5Fsource=corpblog-de) ist das Herzstück dieses Wandels. Sie kombiniert künstliche Intelligenz (KI) und Automatisierung, um intelligente Geschäftsprozesse zu schaffen, die sich mit der Zeit anpassen und weiterentwickeln können.
@@ -111,9 +133,6 @@ Vor der Implementierung der Automatisierung setzte das Unternehmen Process-Minin
 
 Nach der Umsetzung dieser Optimierungen implementierte das Unternehmen eine intelligente Prozessautomatisierungslösung, die robotische Prozessautomatisierungsbots (RPA-Bots) für die Dateneingabe und -extraktion, KI-Algorithmen für die Entscheidungsfindung, Workflow-Automatisierung für die Orchestrierung des End-to-End-Prozesses und Process-Intelligence-Tools zur Überwachung der Leistung des automatisierten Prozesses und zur Ermittlung weiterer verbesserungswürdiger Bereiche umfasste.
 
-<!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=38709260&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF Perpetual (2-PC)  Free upgrade. No monthly fees ever. </a>
-<!-- affiliate ads end -->
 ## Ein ganzheitlicher Ansatz für Process Intelligence
 
 Viele Process-Mining- oder Task-Mining-Tools geben zwar vor, umfassende Lösungen zu bieten, sind aber oft nicht in der Lage, die Komplexität und die Feinheiten von Prozessen in der Praxis zu berücksichtigen. Eine wirklich wirksame Lösung muss die fünf oben genannten Säulen vollständig unterstützen. Nur mit einem ganzheitlichen Ansatz, der alle diese Aspekte umfasst, können Unternehmen darauf hoffen, eine sinnvolle und nachhaltige Prozessumstellung zu erreichen.
@@ -122,10 +141,6 @@ Unternehmen auf der ganzen Welt automatisieren zeitaufwendige Routineabläufe, d
 
 [Demo anfordern](https://tools.techidaily.com/abbyy/products/)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
-DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
-<!-- affiliate ads end -->
 ## Häufig gestellte Fragen
 
 [Was ist eine Process-Intelligence-Strategie?](https://tools.techidaily.com/abbyy/products/)
@@ -148,9 +163,6 @@ Damit ein Prozess erfolgreich automatisiert werden kann, muss er zunächst verst
 
 ![Scott Opitz ABBYY](https://static1.abbyy.com/abbyycommedia/25562/02a-scottopitz-99x99.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Scott Opitz
 
 Chief Technology Officer at ABBYY
@@ -161,13 +173,6 @@ In seiner 30-jährigen Laufbahn in der Computerbranche hat Scott Opitz verschied
 
 Zuvor fungierte er unter anderem als Senior Vice President, Worldwide Marketing & Business Development für webMethods (heute Software AG), wobei er für Marketing, Geschäftsentwicklung und strategische Produktplanung verantwortlich zeichnete. Zu webMethods war er im Zuge von dessen Übernahme von IntelliFrame Corporation gekommen, einem Unternehmen, das sowohl Produkte zur Datenintegration als auch die integrierte Workflow- und BPM-Plattform InVista bereitstellte, die Opitz mitgegründet hatte. Scott Opitz hat außerdem zahlreiche Führungspositionen in den Bereichen Technologie, Marketing und Geschäftsentwicklung für staatliche und privatwirtschaftliche Unternehmen bekleidet.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 ### Gefällt mir, teilen oder neu posten 
 
 Teilen 
@@ -184,8 +189,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -193,4 +196,24 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-finding-icons-a-targeted-approach-to-instas-powerful-voices/"><u>[New] In 2024, Finding Icons A Targeted Approach to Insta's Powerful Voices</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mpgmpeg124/"><u>「MPGファイルをMPEG(1/2/4)形式に容易に変換する手軽な二通りのテクニック」</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-unveiling-snapchat-video-feeds-from-twitter/"><u>2024 Approved Unveiling Snapchat Video Feeds From Twitter</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/are-product-assessments-online-content-sold-for-2024/"><u>Are Product Assessments Online Content Sold for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/comprehensive-tropico-6-analysis-mastering-island-governance-amidst-exotic-challenges/"><u>Comprehensive Tropico 6 Analysis: Mastering Island Governance Amidst Exotic Challenges</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-realme-c55-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Realme C55 Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-the-ultimate-list-igtv-masterminds-and-maestros/"><u>In 2024, The Ultimate List IGTV Masterminds & Maestros</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mastering-multimedia-file-conversion-transform-videos-and-audios-into-amr-format/"><u>Mastering Multimedia File Conversion: Transform Videos & Audios Into AMR Format</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mastering-the-art-of-rapid-video-codec-transformation-techniques/"><u>Mastering the Art of Rapid Video Codec Transformation Techniques</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mastering-video-format-change-transforming-veg-into-mp4-in-sony-vegas-pro/"><u>Mastering Video Format Change: Transforming VEG Into MP4 in Sony Vegas Pro</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-unlock-new-dimensions-a-beginners-guide-to-video-resizing/"><u>New 2024 Approved Unlock New Dimensions A Beginners Guide to Video Resizing</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-exploring-the-finest-free-streaming-services-a-top-10-list-for-iphone-and-android-users-for-2024/"><u>New Exploring the Finest Free Streaming Services A Top 10 List for iPhone & Android Users for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/potplayer-youtube-mastery-the-complete-tutorial-on-video-downloading-and-playback/"><u>PotPlayer YouTube Mastery: The Complete Tutorial on Video Downloading & Playback</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-guide-watching-videos-from-usb-stick-on-your-hisense-television/"><u>Step-by-Step Guide: Watching Videos From USB Stick on Your Hisense Television</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-7-solutions-for-restoring-your-windows-voice-recorder-functionality/"><u>Top 7 Solutions for Restoring Your Windows Voice Recorder Functionality</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-rated-free-software-convert-mkv-files-to-mp4-quickly-for-seamless-ipad-streaming/"><u>Top Rated Free Software: Convert MKV Files to MP4 Quickly for Seamless iPad Streaming</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-adobe-systems-adobe-premiere-pro-cs6-for-mac-free-download/"><u>Updated Adobe Systems Adobe Premiere Pro CS6 for Mac (Free Download)</u></a></li>
+</ul></div>
 

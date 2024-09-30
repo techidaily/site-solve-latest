@@ -1,7 +1,7 @@
 ---
 title: マックとWindowsのどちらでも対応！レンタル映像のコピー・ダビングガイド：TSUTAYA、ゲオ向けトリック!
-date: 2024-09-10T10:04:23.886Z
-updated: 2024-09-11T10:04:23.886Z
+date: 2024-09-27T18:16:00.378Z
+updated: 2024-09-30T18:32:11.945Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/104fcc0c1e7ba0020bac11684b73c47c97661f3e4742e08d1374a286a48bed4c.jpg
@@ -11,35 +11,7 @@ thumbnail: https://thmb.techidaily.com/104fcc0c1e7ba0020bac11684b73c47c97661f3e4
 
 [ホーム](https://tools.techidaily.com/macxdvd/products/)[Blog](https://tools.techidaily.com/macxdvd/products/) \> レンタルDVDをコピー・ダビング方法
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137973/21526" target="_top" id="2137973">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137973" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137973/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## 超簡単TSUTAYAやゲオなどのレンタルDVDをコピー・ダビング！Mac＆Windowsとも対応！
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## レンタルDVDダビングできない？！
 
@@ -54,8 +26,6 @@ thumbnail: https://thmb.techidaily.com/104fcc0c1e7ba0020bac11684b73c47c97661f3e4
 * 1. [**1.** **今活躍しているコピーガード及び対応可能なソフト一覧をみてみよう！**](https://tools.techidaily.com/macxdvd/products/)  
    2. [**2.** **レンタルDVDをダビングする操作手順：Windows編**](https://tools.techidaily.com/macxdvd/products/)  
    3. [**3.** **レンタルDVDをダビングする操作手順：Mac編**](https://tools.techidaily.com/macxdvd/products/)
-
-
 
 ## 借りてきたDVDを焼く方法を知る前、今活躍しているコピーガード及び対応可能なソフトをみてみよう！
 
@@ -104,8 +74,6 @@ DDVDプレーヤーで冒頭の宣伝部分などでユーザからの操作を�
 
 以上から見れば、DVDディスクに施されているコピーガードがあるため、レンタルDVDダビングできない。あらゆるコピーガードにも手軽く解除できるのはMacX DVD Ripper Proしかない。MacX DVD Ripper Proはあなたのベストな選択肢である。
 
-
-
 ## 借りてきたレンタルDVDをダビングする操作手順：Windows編
 
 Disk UtilityはMacユーザーしか利用できないので、WindowsユーザーはどうやってレンタルDVDをダビングしますか。心配ことなく、WindowsユーザーはMacX DVD Ripper Pro for WindowsバージョンとImgBurnを連携して、簡単にレンタルDVDをダビングできる。
@@ -113,8 +81,6 @@ Disk UtilityはMacユーザーしか利用できないので、Windowsユーザ�
 ※初めてこのソフトを起動する時、界面デフォルト言語は英語なので、（？）をクリックしてから、界面言語を日本語に変更することができます。そして、MacX DVD Ripper Pro for Windows使い方はMacX DVD Ripper Proとほぼ同じ。以下はファンタスティック・ビーストと魔法使いの旅のコピー＆ダビングを例にして説明する。
 
 [レンタルDVDコピーソフト](https://tools.techidaily.com/macxdvd/products/)
-
-
 
 * STEP.1  
 DVDを追加。  
@@ -126,42 +92,39 @@ DVDを追加。
 ![レンタルdvdコピー](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-01.jpg)
 * STEP.3  
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137228/26400" target="_top" id="2137228">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137228" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137228/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 保存先を選ぶ。  
 出力ファンタスティック・ビーストと魔法使いの旅のISOファイルを保存する用のフォルダを選択する。  
 ![レンタルdvdコピー](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-win-02.jpg)
 * STEP.3  
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 借りてきたDVDコピー。  
 「RUN」ボタンをクリックして、ファンタスティック・ビーストと魔法使いの旅DVDをISOにコピーすることが開始。  
 ![レンタルdvdコピー](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-win-03.jpg)  
 [![Windows iPhone DVDリッピングソフト](https://www.macxdvd.com/blog/new-fourteen/buywin0523.png)](https://tools.techidaily.com/macxdvd/products/) [![Mac用動画ダウンロードフリーソフト](https://www.macxdvd.com/blog/new-fourteen/buymac0523.png)](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * STEP.4  
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ImgBurnでレンタルDVDをダビングしよう。  
 ファンタスティック・ビーストと魔法使いの旅をISOにコピーのプロセスが終わったら、[ImgBurn](https://tools.techidaily.com/macxdvd/products/)でベイマックスをDVDにダビングしよう。  
 まず、ImgBurn 3.5.4.0を無事にインストール＆日本語化されてから、起動してください。「メニューバー」→「モード」→「EZモード選択」を選択してください。  
@@ -171,28 +134,6 @@ ImgBurnでレンタルDVDをダビングしよう。
  これで、Windows環境でレンタルDVD焼き方の解説が終わる。次はMac環境でレンタルDVDをダビング方法を説明する。  
 ![レンタルdvdダビング](https://www.macxdvd.com/blog/img/zql-2018-03-06-9.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
 ## 借りてきたレンタルDVDをダビングする操作手順：Mac編
 
 まず、MacX DVD Ripper Proをコンピュータにダウンロードとインストールしてください。そして、起動してから、「Help」をクリックして、インターフェース言語を日本語に指定できる。
@@ -200,8 +141,6 @@ ImgBurnでレンタルDVDをダビングしよう。
 ここでは、最近ディズニー大ヒット作インサイド・ヘッド DVDからDVDへダビングを例として説明する。
 
 [レンタルDVDコピーソフト](https://tools.techidaily.com/macxdvd/products/)
-
-
 
 * STEP.1  
 DVDを追加。  
@@ -211,60 +150,36 @@ DVDを追加する。まず、「DVD追加」ボタンをクリックしてか�
 ![Mac DVDコピー](https://www.macxdvd.com/blog/img/perfect-convert-dvd-to-mp4-software010802.jpg)
 * STEP.2  
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 出力形式を指定して、レンタルDVDをコピー。  
 出力プロファイルを選ぶ。インサイド・ヘッドが付きディズニーX-project DRMコピーガードが解除されたら、出力プロファイルの窓口が出てきた。  
 この場合は、「DVDバックアップ」―「DVDをISOイメージへクローン」―「完了」の順でクリックする。  
 ![レンタルDVDコピーMac](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-02.jpg)
 * STEP.3  
 
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
-  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 保存先を選ぶ。  
  保存先を指定する。出力ISOファイルを保存する用のフォルダを選択する。  
 ![レンタルDVDコピーMac](https://www.macxdvd.com/blog/img/dvd-audio-extract-free-02.jpg)
 * STEP.4  
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 Macで借りてきたDVDをコピー。  
 「RUN」ボタンをクリックして、インサイド・ヘッドDVDをISOにコピーし始める。  
 ![レンタルDVDコピー](https://www.macxdvd.com/blog/img/dvd-audio-extract-free-03.jpg)
 * **STEP.5：**  
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 （1）ディスクユーティリテでレンタルDVDをダビングする方法  
 インサイド・ヘッド をISOにコピーのプロセスが終わったら、ディスクユーティリティ（Disk Utility）で借りてきたDVDを焼く方法を紹介していく。  
  **①、**ディスクユーティリティを起動してください（Applications／アプリケーション --> Utilities／ユーティリティ）  
@@ -275,18 +190,12 @@ Macで借りてきたDVDをコピー。
 ![レンタルDVDダビング](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-03.jpg)
 * STEP.5  
 
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135393/19272" target="_top" id="2135393">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135393" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886019/19272" target="_top" id="1886019">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886019" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135393/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886019/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 （2）FinderでレンタルDVDをダビングする方法  
 もうMac OS X El Capitanにアップグレードしたユーザーなら、ディスクユーティリティの代わりに、「Finder」を使ってください。以下では、Finderを使って借りてきたDVDを焼く方法を紹介していく。  
@@ -297,7 +206,12 @@ Macで借りてきたDVDをコピー。
  ※【Finder】を利用してDVDを書き込むには知るべきことがある。“書き込み“というより、むしろ【Finder】は出力DVDディスクをUSBメモリ化にして、ソースファイルをそのままでDVDディスクへ保存する仕組みである。つまり、ISOイメージ形式の映像データは、DVD-Videoフォーマット規格ではなく、ISOでDVDディスクへ保存するのである。それにより、【Finder】で作成したDVD映像が一部のDVDプレーヤーで再生できないこともあるので、ご注意ください。  
 ![レンタルDVDダビング](https://www.macxdvd.com/blog/img/rental-dvd-dubbing-04.jpg)
 
-
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484950/16446" target="_top" id="1484950">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484950" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484950/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## まとめ
 
@@ -317,57 +231,20 @@ MacX DVD Ripper ProはレンタルDVDをダビングするには、確かに重�
 
 * √ソフトをご利用になる前に国家の著作権に関する法律についてお調べになるようにお勧めする。違法とならないで法律の趣旨をよく理解して正しい行動をする。例えば、著作権保護の適用外になるDVDのコピー・DVDのダビングが合法的な使用法。
 
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## あなたへのおすすめ
 
 ![](https://www.macxdvd.com/blog/img/drp-mj-20170508-01.jpg) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 [超簡単TSUTAYAやゲオなどのレンタルDVDをダビング方法！](https://tools.techidaily.com/macxdvd/products/)
 
 ![](https://www.macxdvd.com/blog/img/drp-mj-20170428-05.jpg) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [借りたレンタルDVDコピー＆DVDリッピングフリーソフト](https://tools.techidaily.com/macxdvd/products/)
 
@@ -379,8 +256,6 @@ MacX DVD Ripper ProはレンタルDVDをダビングするには、確かに重�
 
 [すげぇー！アダルト DVD ダビングしたい方向けの裏ワザが公開！](https://tools.techidaily.com/macxdvd/products/)
 
-
-
 [ホーム](https://tools.techidaily.com/macxdvd/products/)[Blog](https://tools.techidaily.com/macxdvd/products/) \> レンタルDVDをコピー・ダビング方法
 
 <ins class="adsbygoogle"
@@ -389,8 +264,6 @@ MacX DVD Ripper ProはレンタルDVDをダビングするには、確かに重�
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -398,4 +271,18 @@ MacX DVD Ripper ProはレンタルDVDをダビングするには、確かに重�
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-discover-the-best-6-apps-to-supercharge-your-instagram-reels/"><u>[New] 2024 Approved Discover the Best 6 Apps to Supercharge Your Instagram Reels</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/exposure-chatgpt-for-windowsunrelated-malware/"><u>Exposure: ChatGPT for Windows—Unrelated Malware</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-the-power-of-cookiebot-for-advanced-site-tracking-and-personalization/"><u>Harnessing the Power of Cookiebot for Advanced Site Tracking and Personalization</u></a></li>
+<li><a href="https://android-location.techidaily.com/how-to-fake-gps-on-android-without-mock-location-for-your-realme-11x-5g-drfone-by-drfone-virtual/"><u>How to Fake GPS on Android without Mock Location For your Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-infinix-note-30-pro-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Infinix Note 30 Pro Phone Pattern Lock without Factory Reset</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/meet-the-new-leader-of-abbyys-marketing-strategy-scott-opitz-steps-up-as-chief-marketing-officer/"><u>Meet the New Leader of ABBYY's Marketing Strategy: Scott Opitz Steps Up as Chief Marketing Officer</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mehr-als-die-halfte-deutschlands-mochte-robotern-einfache-und-ungeliebte-aufgaben-uberlassen/"><u>Mehr Als Die Hälfte Deutschlands Möchte Robotern Einfache Und Ungeliebte Aufgaben Überlassen</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/nouvelle-mise-a-jour-de-flexicapture-par-abbyy/"><u>Nouvelle Mise À Jour De FlexiCapture Par ABBYY</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/region-unlocking-dvds-on-windows-1187-free-conversion-methods-explored/"><u>Region Unlocking DVDs on Windows 11/8/7: Free Conversion Methods Explored</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/transformative-video-editing-master-the-art-of-ken-burns-in-camtasa-9/"><u>Transformative Video Editing Master the Art of Ken Burns in Camtasa 9</u></a></li>
+<li><a href="https://win-blog.techidaily.com/ultimate-guide-improving-performance-and-decreasing-lags-in-fall-guys/"><u>Ultimate Guide: Improving Performance & Decreasing Lags in Fall Guys</u></a></li>
+</ul></div>
 

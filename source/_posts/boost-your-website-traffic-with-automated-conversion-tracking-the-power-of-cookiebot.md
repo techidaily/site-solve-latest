@@ -1,7 +1,7 @@
 ---
 title: Boost Your Website Traffic with Automated Conversion Tracking - The Power of Cookiebot
-date: 2024-09-10T10:04:24.008Z
-updated: 2024-09-11T10:04:24.008Z
+date: 2024-09-25T16:03:20.944Z
+updated: 2024-09-30T16:09:28.275Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6ab330fc24fdad62a19d7e96.jpeg
@@ -21,20 +21,6 @@ thumbnail: https://thmb.techidaily.com/cbd55a60b36d243580c486b7896cd6baf0fe5a1c6
 
 またその中で、ABBYY製品が活躍している領域、およびその特徴をご紹介します。
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115925/19272" target="_top" id="2115925">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115925" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115925/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### OCRとは
 
 OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ばれます。文字を含む画像を利用可能なデジタルデータである文字情報に変換する技術です。ビジネスで利用されるOCRソリューションとしては、大きく分けて以下の2種類があります。
@@ -49,20 +35,6 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 
 ここからは特に、RPA, DXで利用されている帳票OCRについて、ソリューション選択時の評価ポイントについて触れたいと思います。
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### 帳票処理ソリューションの評価ポイント
 
 帳票処理ソリューションを選択する際、評価ポイントとして何に注目されてますでしょうか？多くの方がOCRの認識精度をまず第一に挙げられるのではないでしょうか。実は、これはとても危険です。弊社でも、これまで認識精度に着目してOCR帳票処理ソリューションを選定した結果、思うように導入効果が出ず何とかしてほしい、といった相談を頂戴することが多数ありました。なぜこのようなことが起こるのでしょうか。以下では、主な原因について説明いたします。
@@ -74,6 +46,13 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 帳票OCRでは以下のような利用プロセスが一般的ですが、目検（確認・修正）時の作業効率に大きな影響を与えるのは、実は文字毎の認識率ではなく、「仕分け～項目抽出～項目内の文字認識」といったトータルでの抽出精度となります。例えば、仕分け時に誤分類が発生すると、後続の処理全てにおいて、やり直しまたは修正が必要となってしまうことになります。
 
 ![AI OCR](https://static1.abbyy.com/abbyycommedia/29415/solcial-media-image.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### ROI（費用対効果）について
 
@@ -89,19 +68,12 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 * 他システム連携性（必要な場合）
 * 開発・メンテナンスコスト
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938721/19272" target="_top" id="1938721">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938721" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938721/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### ABBYY FlexiCaptureの強み
 
@@ -115,23 +87,16 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 
 ![AI OCR](https://static1.abbyy.com/abbyycommedia/29417/forms-image.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [例2: 帳票のレイアウトが異なる複数ページにわたる明細の読み取り](https://tools.techidaily.com/abbyy/products/)
 
 ![AI OCR](https://static1.abbyy.com/abbyycommedia/29416/forms-image-2.png)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ##### 簡単かつ高精度な仕分け機能
 
@@ -140,26 +105,6 @@ OCRとはOptical Character Recognitionの略で、光学文字認識とも呼ば
 ABBYY FlexiCaptureには簡単な操作で高精度な仕分けを実現する機能があり、世界中で利用されています。数百～数千の帳票仕分けの実績が多数ございます。
 
 [例3: AIで高精度な自動文書仕分け](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### 柔軟にカスタマイズ可能な検証ツールやワークフロー
 
@@ -189,19 +134,12 @@ FlexiCaptureの大きな特徴として、様々なシステム・アプリケ�
 
 [OCR（文字認識）](https://tools.techidaily.com/abbyy/products/) [DX（デジタルトランスフォーメーション）](https://tools.techidaily.com/abbyy/products/) [AI（人工知能）](https://tools.techidaily.com/abbyy/products/) [AI OCR](https://tools.techidaily.com/abbyy/products/) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### いいね！、シェア、再投稿
 
@@ -257,8 +195,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -266,4 +202,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-approaches.techidaily.com/new-metaverse-maps-drawn-understanding-through-6-vivid-scenarios/"><u>[New] Metaverse Maps Drawn Understanding Through 6 Vivid Scenarios</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-recording-real-time-google-meetings/"><u>[Updated] In 2024, Recording Real-Time Google Meetings</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-speech-clarity-achieved-by-googles-advanced-conversion/"><u>[Updated] In 2024, Speech Clarity Achieved by Google's Advanced Conversion</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/converting-your-music-library-to-audiobooks-on-itunes-easy-methods-revealed/"><u>Converting Your Music Library to Audiobooks on iTunes: Easy Methods Revealed</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-additional-tips-about-sinnoh-stone-for-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, Additional Tips About Sinnoh Stone For Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-horizontalvertical-selecting-facebook-video-format/"><u>In 2024, Horizontal/Vertical Selecting Facebook Video Format</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-perfect-your-soundtracks-essential-edits-for-crafting-podcasts-in-garageband/"><u>In 2024, Perfect Your Soundtracks Essential Edits for Crafting Podcasts in GarageBand</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722971343448-instant-access-to-new-hp-device-drivers-download-with-ease/"><u>Instant Access to New HP Device Drivers - Download with Ease</u></a></li>
+<li><a href="https://win-blog.techidaily.com/league-of-legends-launch-failure-solutions-top-tips-for-gamers-in-202-instruction-1-same-difficultyformatlength/"><u>League of Legends Launch Failure Solutions - Top Tips for Gamers in 202# Instruction 1 (Same Difficulty/Format/Length)</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-dilemma-decoded-unraveling-legal-constraints-in-ai-advancements-perspectives-from-abbyy-blog/"><u>The Dilemma Decoded: Unraveling Legal Constraints in AI Advancements - Perspectives From ABBYY Blog</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transform-your-enterprise-records-into-valuable-data-points-leveraging-ai-techniques-by-abbyy/"><u>Transform Your Enterprise Records Into Valuable Data Points: Leveraging AI Techniques by ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transition-to-eco-friendly-solutions-pwc-professionals-utilize-abbyy-mobile-software-for-document-management/"><u>Transition to Eco-Friendly Solutions: PwC Professionals Utilize ABBYY Mobile Software for Document Management</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/unlock-advanced-data-insights-with-our-cookiebot-integrated-solutions/"><u>Unlock Advanced Data Insights with Our Cookiebot Integrated Solutions</u></a></li>
+</ul></div>
 

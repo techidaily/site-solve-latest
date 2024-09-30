@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Optimize Your Site's Performance and Tracking"
-date: 2024-08-25T23:35:07.141Z
-updated: 2024-08-26T23:35:07.141Z
+date: 2024-09-25T18:23:06.322Z
+updated: 2024-09-30T18:40:06.734Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e504c943e408d092d2c07266c8.jpg
@@ -15,15 +15,33 @@ thumbnail: https://thmb.techidaily.com/0244557d86d8e1a27dc054dedba4a1385b1696e50
 
 English
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Featuring
 
 ![Eileen Potter](https://static4.abbyy.com/abbyycommedia/25122/logo-2021-76x23.svg) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080333/19272" target="_top" id="2080333">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080333" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080333/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Eileen Potter](https://static1.abbyy.com/abbyycommedia/31994/eileenpotter-198x198.png)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Eileen Potter
 
 Solutions Marketing Manager, Insurance, **ABBYY**
@@ -31,13 +49,14 @@ Solutions Marketing Manager, Insurance, **ABBYY**
 ![Melanie Kill](https://static5.abbyy.com/abbyycommedia/34922/axa-logo-forcards.png) 
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ![Melanie Kill](https://static4.abbyy.com/abbyycommedia/35009/100-melaniekill-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### Melanie Kill
 
 Claims Transformation Director, **AXA**
@@ -46,16 +65,10 @@ Claims Transformation Director, **AXA**
 
 ![Ian Thompson](https://static4.abbyy.com/abbyycommedia/35011/99-ianthompson-198x198.png)
 
-<!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Ian Thompson
 
 Group Chief Claims Officer, **Zurich Insurance**
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4940317&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/333ac5d90817d69113471fbb6e531bee/sps-partnership-728x90eng.png" border="0"></a>
-<!-- affiliate ads end -->
 ### Join ABBYY, AXA and Zurich Insurance at TIN’s Virtual Claims Keynote session.
 
 The panellists joined a discussion titled: Rethinking claims for the digital age - Leveraging digital to enable a superior, sustainable claims operating model.
@@ -67,28 +80,27 @@ The panellists joined a discussion titled: Rethinking claims for the digital age
 * The opportunity to create an empathetic, truly omnichannel claims experience
 * The role of claims in achieving Net Zero
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Watch now
 
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-<!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="720" height="300" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Thank you, enjoy your webinar!
 
 [![TIN Virtual Claims](https://static4.abbyy.com/abbyycommedia/35013/tin-virtual-claims.jpg)](https://www.youtube.com/watch?v=NYnln7QBz70) 
@@ -151,8 +163,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -160,4 +170,20 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-from-childhood-to-cash-flow-young-kajis-youtube-economic-surge/"><u>[Updated] In 2024, From Childhood to Cash Flow Young Kaji’s YouTube Economic Surge</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-vivo-y100i-power-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Vivo Y100i Power 5G Fingerprint Lock</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-site-performance-with-automated-bots-the-power-of-cookiebot/"><u>Enhanced Site Performance with Automated Bots: The Power of CookieBot</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-traffic-capture-with-cookiebot-technology/"><u>Enhanced Traffic Capture with Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-user-experience-with-advanced-cookiebot-tracking-technology/"><u>Enhanced User Experience with Advanced Cookiebot Tracking Technology</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/enhancing-image-quality-step-by-step-guide-to-fixing-fuzzy-visuals-in-call-of-duty-warzone-pc-version/"><u>Enhancing Image Quality: Step-by-Step Guide to Fixing Fuzzy Visuals in Call of Duty: Warzone (PC Version)</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-cookiebot-elevate-your-sites-seo-game/"><u>Harness the Power of Cookiebot: Elevate Your Site's SEO Game</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/harnessing-precision-with-abbyy-finereader-15-your-essential-versatile-pdf-editor-for-todays-business-needs/"><u>Harnessing Precision with ABBYY FineReader 15: Your Essential, Versatile PDF Editor for Today's Business Needs</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-trouble-with-apple-iphone-12-pro-swipe-up-try-these-11-solutions-by-drfone-ios/"><u>In 2024, Trouble with Apple iPhone 12 Pro Swipe-Up? Try These 11 Solutions</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-computer-conundrum-should-i-buy-a-mini-or-desktop-pc/"><u>The Computer Conundrum: Should I Buy a Mini or Desktop PC?</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-ultimate-guide-to-resolving-a-black-screen-problem-on-your-dell-notebook/"><u>The Ultimate Guide to Resolving a Black Screen Problem on Your Dell Notebook</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/ultimate-guide-to-get-the-meltan-box-pokemon-go-for-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>Ultimate guide to get the meltan box pokemon go For Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/unlock-the-full-potential-with-advanced-gopro-studio-edits/"><u>Unlock the Full Potential with Advanced GoPro Studio Edits</u></a></li>
+</ul></div>
 

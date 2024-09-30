@@ -1,7 +1,7 @@
 ---
 title: Carlsberg Führt ABBYY Für Beschleunigung Von Premium-Bierproduktion Ein
-date: 2024-09-10T10:04:24.733Z
-updated: 2024-09-11T10:04:24.733Z
+date: 2024-09-26T18:49:24.571Z
+updated: 2024-09-30T20:27:52.761Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/0f9975c7424be8ab80f0e3edfa04cf204d756fbbde35db8886dbe8cbc049b368.jpg
@@ -11,61 +11,13 @@ thumbnail: https://thmb.techidaily.com/0f9975c7424be8ab80f0e3edfa04cf204d756fbbd
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983473">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Carlsberg entscheidet sich für ABBYY, um seine Weltklasse-Biere schneller auf den Markt zu bringen
 
 20\. September 2022
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ![15040 Carlsberg Blog](https://static1.abbyy.com/abbyycommedia/35962/15040_carlsberg_blog.png) 
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 _Die Carlsberg-Gruppe digitalisiert ihre Bestell- und Lieferprozesse mit den intelligenten Dokumentenverarbeitungslösungen von ABBYY_
 
@@ -88,19 +40,12 @@ _Neil Murphy, Global Channel Chief bei ABBYY._
 Die Plattform für intelligente Prozessautomatisierung von ABBYY umfasst branchenführende Lösungen für intelligente Dokumentenverarbeitung (IDP), Process Mining und Task Mining. Dazu gehört [ABBYY Vantage](https://tools.techidaily.com/abbyy/products/), die erste Low-Code/No-Code-Plattform der Branche, die künstliche Intelligenz (KI) einsetzt, um Dokumente schnell und einfach zu verstehen. Vantage macht die digitalen Mitarbeiter und Prozesse von heute intelligenter, indem es KI-Skills zum Lesen, Verstehen und Extrahieren von Inhalten aus Dokumenten bereitstellt und Unternehmen dabei hilft, die digitale Transformation zu beschleunigen. [ABBYY Timeline](https://tools.techidaily.com/abbyy/products/) verfügt über eine fortschrittliche Process-Mining- und Task-Mining-Technologie, die die neueste künstliche Intelligenz nutzt. Sie ermöglicht es Unternehmen, automatisch einen interaktiven digitalen Zwilling ihrer Prozesse zu erstellen und diese in Echtzeit zu analysieren, um Engpässe zu identifizieren und zukünftige Ergebnisse vorherzusagen, um die Entscheidungsfindung für Technologieinvestitionen zu erleichtern.  
 Für weitere Informationen besuchen Sie: <https://www.abbyy.com/de/solutions/intelligent-process-automation-ipa/>.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123470/16836" target="_top" id="2123470">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123470" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123470/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Über ABBYY
 
@@ -112,37 +57,29 @@ ABBYY ist ein globales Unternehmen mit Sitz in den USA und Niederlassungen in 15
 
 ABBYY und das ABBYY Logo sind entweder registrierte Warenzeichen oder Warenzeichen von ABBYY Software Ltd. Alle anderen Warenzeichen sind Eigentum ihrer jeweiligen Inhaber. 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://bluettiit.sjv.io/c/5597632/2148129/17093" target="_top" id="2148129">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148129" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148129/17093" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### ABBYY Pressekontakt
 
 ![02E Eva Mariahufschmitt](https://static4.abbyy.com/abbyycommedia/23663/02e-eva-mariahufschmitt.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134237/18498" target="_top" id="2134237">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134237" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134237/18498" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Eva-Maria Hufschmitt
 
@@ -158,8 +95,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -167,4 +102,24 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-support.techidaily.com/updated-joyfuljourney-sign-up-share-and-create-fun-videos/"><u>[Updated] JoyfulJourney Sign Up, Share and Create Fun Videos</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-music-from-infinix-smart-8-by-fonelab-android-recover-music/"><u>Best Android Data Recovery - Undelete Lost Music from Infinix Smart 8</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comparatif-dvd-vs-blu-ray-vs-fichier-numerique-quel-offre-le-meilleur-rapport-qualiteprix/"><u>Comparatif DVD vs Blu-Ray vs Fichier Numérique : Quel Offre Le Meilleur Rapport Qualité/Prix ?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/curating-child-friendly-gpt-conversations-with-care-in-5-ways/"><u>Curating Child-Friendly GPT Conversations with Care in 5 Ways</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/digiarty-dvd-copy-toolkit-professional-dvd-ripping-duplicating-and-media-transcoding-services/"><u>Digiarty DVD Copy Toolkit: Professional DVD Ripping, Duplicating & Media Transcoding Services</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-the-latest-version-of-windows-media-player-for-free-on-pc/"><u>Download the Latest Version of Windows Media Player for Free on PC</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/dvd2024-pciphone/"><u>DVDコピー技術2024年度の最新トレンド - PCとiPhoneで完全ガイド</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/explore-iphones-best-value-top-10-budget-friendly-photo-collage-apps/"><u>Explore iPhone's Best Value Top 10 Budget-Friendly Photo Collage Apps</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/handbrake-fur-die-bestmogliche-videokomprimierung-nutzen-bitrate-und-qualitatseinstellungen-erklart/"><u>Handbrake Für Die Bestmögliche Videokomprimierung Nutzen: Bitrate- Und Qualitätseinstellungen Erklärt</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-enhance-performance-and-prevent-lag-in-deathloop-for-playstation-5-and-pc-users/"><u>How To Enhance Performance And Prevent Lag In Deathloop for PlayStation 5 And PC Users</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-best-drone-cameras-10-for-professional-filmmaking/"><u>In 2024, Best Drone Cameras #10 For Professional Filmmaking</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/mastering-windows-11s-reset-this-pc-best-practices-for-timing-and-execution/"><u>Mastering Windows 11'S 'Reset This PC': Best Practices for Timing and Execution</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/oggwavtop/"><u>OGGファイルが気になる？完全対応のWAVへ自由転送ツールTOP選！</u></a></li>
+<li><a href="https://driver-install.techidaily.com/revamping-realtek-drivers-for-optimal-performance/"><u>Revamping Realtek Drivers for Optimal Performance</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-art-of-close-up-meetings-in-ms-teams/"><u>The Art of Close-Up Meetings in MS Teams</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-6-aheads-ki-video-aufbugelpinsel-programme-fur-die-perfekte-bildqualitat/"><u>Top 6 AHEADS KI Video Aufbügelpinsel Programme Für Die Perfekte Bildqualität</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-rated-multimedia-software-superior-wmv-players-for-modern-operating-systems-macos-windows-1110/"><u>Top Rated Multimedia Software: Superior WMV Players for Modern Operating Systems (macOS, Windows 11/10)</u></a></li>
+</ul></div>
 

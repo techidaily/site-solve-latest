@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot: The Key Ingredient in Advanced Web Personalization"
-date: 2024-08-25T23:34:33.430Z
-updated: 2024-08-26T23:34:33.430Z
+date: 2024-09-29T20:48:43.577Z
+updated: 2024-09-30T18:34:30.557Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/cd61def31c266f510e96724b2a8477792657278ca4fb179ccb3f421fcf0aa55a.jpg
@@ -30,8 +30,6 @@ Proprietary & Confidential. © 2024, Everest Global, Inc. | this document has be
 Proprietary & Confidential. © 2024, Everest Global, Inc. | this document has been licensed to ABBYY Intelligent Document Processing (IDP) Products PEAK Matrix ® Assessment 2024 9 ABBYY profile (page 5 of 6) Capabilities and offerings Available In the roadmap Available via partner Not available Commercial model Perpetual licensing Subscription licensing Fixed capacity-based Usage-based (per document) Usage-based (per page) Per process based Outcome-based Hybrid models 
 
 Proprietary & Confidential. © 2024, Everest Global, Inc. | this document has been licensed to ABBYY Intelligent Document Processing (IDP) Products PEAK Matrix ® Assessment 2024 10 Measure of capability: High Low Market impact Vision and capability Market adoption Portfolio mix Value delivered Overall Vision and strategy Document processing capability Monitoring and improvement Implementation and support Commercial model Overall Overall IDP Strengths  ABBYY's IDP offering, ABBYY Vantage and FlexiCapture, offers the capabilities to process structured and unstructured documents with a no-code/low-code approach. ABBYY also provides its proprietary OCR (FineReader), process intelligence solution (Timeline), and partners with a large number of complementary technology providers  It offers HITL feature for feedback-based learning of the model and has the ability to leverage generative AI for software learning and training and synthetic data generation for training ML models. Clients appreciate its ease of use in terms of training the model  ABBYY provides an online marketplace for pre-built models or skills, custom solution packages, and third- party connectors. Clients have also appreciated the breadth of the marketplace  The solution has the ability to provide domain-specific training data for entity recognition and the ability for business users to add, configure, and manage validation rules using external data  It leverages generative AI to recognize sentiments from text, summarize documents, extract key-value pairs from complex documents, and compare documents. It also offers a pre-built connector with generative AI/LLMs including ChatGPT  It can be deployed on-premises, cloud, and hybrid environments. It is also available as a SaaS offering and supports multi-tenant operations. Clients highlighted its cloud offering as one of its strengths Limitations  ABBYY has rich experience in serving clients from banking and capital markets, public sector, professional services, and manufacturing. Its experience in serving hi-tech and telecom, media and entertainment, CPG and retail, and travel and logistics sectors is relatively low  Though the platform offers semantic search capabilities for scanned documents and PDFs, the ability to query documents in Q&A fashion using generative AI is currently not available and is in the roadmap  Its ability to predict the likelihood of future events (e.g., loan default) based on understanding of the document is in the roadmap  Currently, ABBYY Vantage does not offer a chat interface to answer user queries around analytics and reports generation by leveraging generative AI/LLM  Clients expect ABBYY to improve reporting capabilities, especially for Straight Through Processing (STP) rate, to help users know when manual verification of a document can be skipped  Clients wish to see improvement in its query resolution time and ease of version control. They also expect ABBYY to add more pre-trained models for banking use cases ABBYY profile (page 6 of 6) Everest Group overall IDP assessment – Leader 
-
-
 
 [Everest Group Intelligent Document Processing (IDP) Products PEAK Matrix® Assessment 2024](https://www.abbyy.com/hub/vantage/everest-group-names-abbyy-leader-in-its-2024-peak-matrix-assessment/?page=1 "Page 1")
 
@@ -99,8 +97,6 @@ Proprietary & Confidential. © 2024, Everest Global, Inc. | this document has be
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -108,7 +104,27 @@ Proprietary & Confidential. © 2024, Everest Global, Inc. | this document has be
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-apex-gk-quizmasters-video-channel-list-for-2024/"><u>[New] Apex GK Quizmasters' Video Channel List for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-innovative-image-editors-your-ultimate-text-companion/"><u>[New] Innovative Image Editors Your Ultimate Text Companion</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/movmp4-t172603069686910/"><u>高速変換! MOV動画からMP4への切り替えとデータ軽量化ガイド</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/abbyy-finescanner-now-available-on-android-scan-like-never-before/"><u>ABBYY FineScanner Now Available on Android - Scan Like Never Before!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/abbyy-umgestaltet-fur-globales-expansion-neue-wege-der-innovation/"><u>ABBYY Umgestaltet Für Globales Expansion: Neue Wege Der Innovation</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/adaptation-au-travail-a-distance-les-plus-de-55-ans-excellent-selon-abbyy/"><u>Adaptation Au Travail À Distance: Les Plus De 55 Ans Excellent Selon ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/amelioration-du-processus-judiciaire-chez-les-avocats-a-londres-grace-au-logiciel-abbyy-une-aide-indispensable-pour-leur-cabinet/"><u>Amélioration Du Processus Judiciaire Chez Les Avocats À Londres Grâce Au Logiciel ABBYY : Une Aide Indispensable Pour Leur Cabinet</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/automated-user-tracking-with-advanced-analytics-enhanced-via-cookiebot-technology/"><u>Automated User Tracking with Advanced Analytics - Enhanced via Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comment-butagaz-et-abbyy-revolutionnent-lechange-de-fournisseur-denergie-individuel-avec-des-outils-technologiques-avances/"><u>Comment Butagaz Et ABBYY Révolutionnent L'échange De Fournisseur D’énergie Individuel Avec Des Outils Technologiques Avancés</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/elevate-your-videography-7-free-sound-effects-collection/"><u>Elevate Your Videography - 7 Free Sound Effects Collection</u></a></li>
+<li><a href="https://android-frp.techidaily.com/frp-hijacker-by-hagard-download-and-bypass-your-motorola-moto-e13-frp-locks-by-drfone-android/"><u>FRP Hijacker by Hagard Download and Bypass your Motorola Moto E13 FRP Locks</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-realme-12-pro-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Realme 12 Pro 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-lava-blaze-pro-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Lava Blaze Pro 5G Phone</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://electronicx.pxf.io/c/5597632/1167086/14483" target="_top" id="1167086">
+  <img src="//a.impactradius-go.com/display-ad/14483-1167086" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1167086/14483" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

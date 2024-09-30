@@ -1,7 +1,7 @@
 ---
 title: "Cookiebot-Enabled: Enhance Your Site's Analytics with Advanced Tracking"
-date: 2024-08-25T23:35:06.142Z
-updated: 2024-08-26T23:35:06.142Z
+date: 2024-09-24T20:32:28.955Z
+updated: 2024-09-30T19:40:52.298Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/8787ab7f7fcdda2f4df516fbd446b3033c8b29f5461b80857fa8c26a8b142de0.jpg
@@ -19,6 +19,19 @@ Government | Document Management/Compliance | Digital Archiving
 
 [Zurück zu den Kundenreferenzen](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<span id="1424527">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Das Herbarium des königlichen botanischen Gartens von Edinburgh wird durch ABBYY revolutioniert
 
 Behörden und öffentlicher Sektor | Dokumentenmanagement 
@@ -28,6 +41,13 @@ Behörden und öffentlicher Sektor | Dokumentenmanagement
 #### Über den Kunden
 
 ![Royal Botanic Garden Edinburgh](https://static5.abbyy.com/abbyycommedia/18492/royal-botanic-garden_logo-155.gif) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 | Name      | Royal Botanic Garden Edinburgh             |
 | --------- | ------------------------------------------ |
@@ -79,9 +99,23 @@ Der RBGE ist außerdem sehr zufrieden mit dem erweiterten Zugang zu seinen Samml
 
 [![ABBYY Recognition Server wird jetzt ABBYY FineReader Server genannt](https://static4.abbyy.com/abbyycommedia/20638/11-frs-casepreview.jpg)](https://tools.techidaily.com/abbyy/products/) ") [ABBYY Recognition Server (jetzt FineReader Server genannt)](https://tools.techidaily.com/abbyy/products/) ") 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) ") 
 
 [![11-government](https://static2.abbyy.com/abbyycommedia/14361/11-government.jpg)](https://tools.techidaily.com/abbyy/products/) [Behörden und Verwaltung](https://tools.techidaily.com/abbyy/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [Mehr erfahren](https://tools.techidaily.com/abbyy/products/) 
 
@@ -93,9 +127,6 @@ Der RBGE ist außerdem sehr zufrieden mit dem erweiterten Zugang zu seinen Samml
 
 [Alle ABBYY-Niederlassungen](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40085955&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f702defbc67edb455949f46babab0c18/products/2_logo9.png" border="0">FX PRO (Gold Robot + Silver Robot(Basic Package))</a>
-<!-- affiliate ads end -->
 ### Sind Sie bereit, mit einem Experten zu sprechen?
 
 Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
@@ -108,8 +139,6 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -117,4 +146,23 @@ Wir würden Sie gerne auf Ihrem Weg zur Automatisierung unterstützen.
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-guidance.techidaily.com/new-key-concepts-in-image-manipulation/"><u>[New] Key Concepts in Image Manipulation</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-the-ultimate-guide-to-choosing-between-gopro-and-yi-for-2024/"><u>[New] The Ultimate Guide to Choosing Between GoPro and Yi for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-orchestrating-overtures-for-optimal-movie-teasers/"><u>[Updated] Orchestrating Overtures for Optimal Movie Teasers</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/updated-teaming-up-for-duet-video-on-tiktok/"><u>[Updated] Teaming Up for Duet Video on TikTok</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/annual-compilation-of-premium-free-lut-choices-for-2024/"><u>Annual Compilation of Premium Free LUT Choices for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/driven-by-cookiebot-enhanced-user-experience-and-data-management/"><u>Driven by Cookiebot: Enhanced User Experience and Data Management</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-steps-downloading-and-installing-your-hp-all-in-one-printer-drivers-on-windows-computers/"><u>Easy Steps: Downloading & Installing Your HP All-in-One Printer Drivers on Windows Computers</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effortless-document-scanning-and-conversion-on-ios-with-iphone-ocr-scanner/"><u>Effortless Document Scanning & Conversion on iOS with iPhone OCR Scanner</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/elevate-your-website-analytics-and-performance-through-advanced-cookiebot-technology/"><u>Elevate Your Website Analytics and Performance Through Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/empowering-websites-with-cookiebot-technology-the-path-to-successful-seo-and-personalization/"><u>Empowering Websites with Cookiebot Technology: The Path to Successful SEO and Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhance-online-tracking-and-analytics-using-the-advanced-cookiebot-solutions/"><u>Enhance Online Tracking and Analytics Using the Advanced Cookiebot Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-rates-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversion Rates with Our Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-customer-engagement-through-advanced-cookie-tracking-solutions/"><u>Enhanced Customer Engagement Through Advanced Cookie Tracking Solutions</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-stop-itunes-from-crashing-in-windows-a-step-by-step-guide/"><u>How to Stop iTunes From Crashing in Windows - A Step-by-Step Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-lava-yuva-3-pro-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Lava Yuva 3 Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/understanding-generative-ai-a-comprehensive-guide/"><u>Understanding Generative AI: A Comprehensive Guide</u></a></li>
+</ul></div>
 

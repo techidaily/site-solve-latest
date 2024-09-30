@@ -1,7 +1,7 @@
 ---
 title: "The Battle of Uniqueness Vs. Commonality: How to Captivate Millennials' Interest in Banking, Financial Services & More | Thought Leadership by ABBYY"
-date: 2024-08-25T23:33:35.408Z
-updated: 2024-08-26T23:33:35.408Z
+date: 2024-09-24T16:34:20.634Z
+updated: 2024-09-30T18:41:03.112Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2f1095b1f1474aef4ef5c21f.png
@@ -45,11 +45,22 @@ Sadly, PwC notes that only 7% of US-based CEOs consider themselves [prepared for
 
 ![innovation vs commoditization 3](https://static1.abbyy.com/abbyycommedia/25237/innovation-vs-commoditization-3-1024x688.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100537/7443" target="_top" id="2100537">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100537" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100537/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Banks and financial services institutions are under increasing pressure to contain costs and improve service quality, but that is difficult to do when the existing infrastructure is dependent on outdated, paper-based workflows. Intelligent data capture, document classification, and unstructured content extraction solutions on mobile, on-site, and in the cloud, enable millennials in real-time.
 
 <!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Author’s note:
 
 _I am currently 28 and my parents are 55\. This places me in the millennial bracket (born 1980-1999) and my parents in the Baby Boomers generation (born 1946-1964), both the two largest segments of the US population as seen in this graph from [CNN Money](http://money.cnn.com/interactive/economy/diversity-millennials-boomers/)._
@@ -59,8 +70,12 @@ Derek Gerber
 ![Derek Gerber](https://static1.abbyy.com/abbyycommedia/25239/derek-gerber.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=1468905&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_728x90.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2105873/7443" target="_top" id="2105873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105873/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 [@gerbzman38](https://twitter.com/gerbzman38)
 
 [LinkedIn Profile](https://www.linkedin.com/in/derekgerber/)
@@ -68,13 +83,12 @@ Derek Gerber
 [Financial Services](https://tools.techidaily.com/abbyy/products/) [Mobile](https://tools.techidaily.com/abbyy/products/) [OCR](https://tools.techidaily.com/abbyy/products/) 
 
 <!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135373/19272" target="_top" id="2135373">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135373" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135373/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Like, share or repost
 
 Share 
@@ -129,8 +143,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -138,4 +150,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://solve-latest.techidaily.com/meilleure-solution-de-telechargement-gratuite-pour-playlists-et-videos-en-4k-top-rangs-des-recherches-google/"><u>« Meilleure Solution De Téléchargement Gratuite Pour Playlists Et Videos en 4K - Top Rangs Des Recherches Google »</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-step-up-your-game-stunning-tiktok-videos-made-simple-for-2024/"><u>[New] Step Up Your Game Stunning TikTok Videos Made Simple for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-banner-brilliance-elevating-your-game-channel-image/"><u>[Updated] Banner Brilliance Elevating Your Game Channel Image</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/1726030196383-ogg/"><u>軽いコツで OGG 音楽ファイルを作り始める - 初心者向けガイド</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-free-software-top-3-windows-10-and-11-dvd-ripper-apps-of-2024-full-versions-available-for-download/"><u>Best Free Software: Top 3 Windows 10 & 11 DVD Ripper Apps of 2024 - Full Versions Available for Download</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/download-hp-network-adapter-drivers-compatible-with-windows-11-7-and-8/"><u>Download HP Network Adapter Drivers: Compatible with Windows 11, 7 & 8</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-imgburn-free-edition-dvd-burning-software-with-anti-piracy-image-iso-features/"><u>Download ImgBurn Free Edition - DVD Burning Software with Anti-Piracy Image ISO Features</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/free-official-downloads-ultimate-bundle-of-dvd-ripper-and-hd-video-converter-tools/"><u>Free Official Downloads: Ultimate Bundle of DVD Ripper and HD Video Converter Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1725286974482-gpu-powered-winxvideo-ai/"><u>GPU-Powered WinxVideo AI：超快速影音转换解析方法</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-bridging-realities-the-art-of-using-luts-in-vfx-and-ar/"><u>In 2024, Bridging Realities The Art of Using LUTs in VFX & AR</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-intellectual-appeal-of-tcls-streamlined-smart-tv-a-deep-dive-into-the-roku-s325-model/"><u>The Intellectual Appeal of TCL's Streamlined Smart TV - A Deep Dive Into the Roku S325 Model</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-tp-link-av2-powerline-adapter-a-comprehensive-review-of-superior-speed-and-substandard-style/"><u>The TP-Link AV2# Powerline Adapter - A Comprehensive Review of Superior Speed and Substandard Style</u></a></li>
+</ul></div>
 

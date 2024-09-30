@@ -1,25 +1,11 @@
 ---
 title: Optimized with Cookiebot Technology - Elevate User Experience and SEO Results Today!
-date: 2024-09-10T10:04:24.563Z
-updated: 2024-09-11T10:04:24.563Z
+date: 2024-09-25T16:21:05.819Z
+updated: 2024-09-30T17:24:20.119Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/2cea6027c03bd4c55f4ae87f65e8c9bc1f9246426c62a6f89484db17077fafde.jpg
 ---
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129741/7443" target="_top" id="2129741">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129741" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129741/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Optimized with Cookiebot Technology - Elevate User Experience and SEO Results Today!
 
@@ -33,19 +19,12 @@ English
 
 ![John Robbins 88x88](https://static5.abbyy.com/abbyycommedia/34666/johnrobbins-88x88.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129041/19576" target="_top" id="2129041">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129041" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129041/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### John Robbins
 
@@ -53,33 +32,12 @@ Senior Director, Chief Compliance Officer, **Intercontinental Exchange**
 
 ![John Fick 88x88](https://static2.abbyy.com/abbyycommedia/34665/johnfick-88x88.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118304/7443" target="_top" id="2118304">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118304" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886044/19272" target="_top" id="1886044">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886044" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118304/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886044/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### John Fick
 
@@ -87,67 +45,18 @@ Vice President & Manager, Fraud and Investigations, **Columbia Bank**
 
 ![Evan Gordon 88x88](https://static1.abbyy.com/abbyycommedia/34664/evangordon-88x88.png)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ### Evan Gordon
 
 Chief Compliance Officer, **APG**  
 
 ![Cherylchiodi 99X99](https://static4.abbyy.com/abbyycommedia/31818/cherylchiodi-99x99.png)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Cheryl Chiodi
 
@@ -156,6 +65,13 @@ Solutions Marketing Manager, Financial Services, **ABBYY**
 ### Overview
 
 Optimizing customer experience is essential for financial institutions going into 2022\. Unfortunately, some of the actions that reduce friction for customers can increase risk for your business. Finding a balance between compliance, risk, and optimized CX is tricky. But it's one of the key challenges for financial institutions as they look to the future.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948954/19272" target="_top" id="1948954">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948954" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948954/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Watch it now!
 
@@ -168,24 +84,24 @@ At a recent virtual roundtable, panelists in the financial services space came t
 
 ### Fill in the form to register for the webinar now
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Get in touch with us
 
 Please note that progressive profiling is used on this form to incrementally collect profile data over time.   
 All personal information collected via this method is under full scope of all provisions in our privacy policy.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Thank you for registering!
 
@@ -251,8 +167,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -260,4 +174,21 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-skills.techidaily.com/new-maximizing-profile-visibility-in-snapchat-spotlights/"><u>[New] Maximizing Profile Visibility in Snapchat Spotlights</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-fcps-premier-selection-the-top-10-editing-plugins/"><u>2024 Approved FCP's Premier Selection The Top 10 Editing Plugins</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boost-your-shipping-operations-how-top-transit-companies-enhance-productivity-using-abbyys-smart-ocr-technology/"><u>Boost Your Shipping Operations: How Top Transit Companies Enhance Productivity Using ABBYY's Smart OCR Technology</u></a></li>
+<li><a href="https://win-forum.techidaily.com/comprehensive-tutorial-for-deleting-event-viewer-memory-logs-on-windows-10/"><u>Comprehensive Tutorial for Deleting Event Viewer Memory Logs on Windows 10</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/einrichtung-individueller-klingeltone-aus-eigener-musikbibliothek-fur-das-iphone-modell-xsxs-maxxr-schritt-fur-schritt-anleitung/"><u>Einrichtung Individueller Klingeltöne Aus Eigener Musikbibliothek Für Das iPhone Modell XS/XS Max/XR - Schritt-Für-Schritt-Anleitung</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/enhancing-image-aesthetics-with-effective-instagram-borders-for-2024/"><u>Enhancing Image Aesthetics with Effective Instagram Borders for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/experience-ultimate-media-control-on-your-mac-with-the-bundle-deal-get-macx-for-34-less-this-festive-offer/"><u>Experience Ultimate Media Control on Your Mac with the Bundle Deal - Get MacX for 34% Less This Festive Offer!</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-innovative-editing-youtube-studio-edition-insights/"><u>In 2024, Innovative Editing YouTube Studio Edition Insights</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/macx-video-converter-for-psp-pspmac/"><u>MacX Video Converter for PSP - 完全無料のPSP互換Mac用動画コンバータソフトウェア</u></a></li>
+<li><a href="https://discover-bits.techidaily.com/navigating-the-rules-of-corporate-application-upgrades-and-maintenance-policies/"><u>Navigating the Rules of Corporate Application Upgrades and Maintenance Policies</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/solutions-to-spy-on-apple-iphone-14-with-and-without-jailbreak-drfone-by-drfone-virtual-ios/"><u>Solutions to Spy on Apple iPhone 14 with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transitioning-from-iphoto-to-photos-is-it-time-to-upgrade/"><u>Transitioning From iPhoto to Photos: Is It Time to Upgrade?</u></a></li>
+<li><a href="https://common-error.techidaily.com/ultimate-troubleshooting-tips-for-the-notorious-livekernelevent-117-error/"><u>Ultimate Troubleshooting Tips for the Notorious LiveKernelEvent 117 Error</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/macdvdm4v-dvdflash-video/"><u>フリーで使えるMac用DVDからM4Vへの無料変換ソフト - DVD劇場音楽やビデオをFlash Video形式に簡単変換</u></a></li>
+</ul></div>
 

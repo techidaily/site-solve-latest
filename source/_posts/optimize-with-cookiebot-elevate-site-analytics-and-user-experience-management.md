@@ -1,101 +1,39 @@
 ---
 title: "Optimize with Cookiebot: Elevate Site Analytics & User Experience Management"
-date: 2024-09-10T10:04:25.128Z
-updated: 2024-09-11T10:04:25.128Z
+date: 2024-09-27T19:02:56.925Z
+updated: 2024-09-30T18:29:45.146Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/ea7251ad5bb332eeb62074bdad75a97d412bc5c90367153732b7b65655c151cd.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Optimize with Cookiebot: Elevate Site Analytics & User Experience Management
 
 Third-party content
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## TIN Digital Claims Report Sponsored by ABBYY
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Fundamentally rethinking customer claims journeys for the digital age
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/import/resource-center/42-tin-digital-claims-report-en-360x232jpg.jpg) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1160850">
-					<video width="576" height="324" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1160850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1160850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1160850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1160850%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1160850/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://unicoeye.pxf.io/c/5597632/2134492/18498" target="_top" id="2134492">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134492" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134492/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 TIN and ABBYY surveyed the UK claims community in February 2021 to identify the biggest challenges in improving claims performance and the claims experience—and to identify key priorities for digital transformation within claims—to establish the key themes for **Virtual Digital Claims**, on March 16th which was hosted by TIN and sponsored by ABBYY.
 
 This report summarizes the outcomes of the survey and the issues raised during the keynote session at Virtual Digital Claims as well as some of the following sessions. The keynote session featured **Ian Thompson**, the Group Claims Director at **Zurich**, and **Eileen Potter**, Insurance Lead at **ABBYY** and was facilitated by **Jeremy Burgess** of **TIN**.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130528/26400" target="_top" id="2130528">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130528" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130528/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Download it now!
 
@@ -103,25 +41,25 @@ There has been an unmistakable shift away from the business case for claims tran
 
 This has led insurers to look again at the ‘Holy Trinity of Transformation’ (People, Process and Technology) through the lens of a genuine customer centricity driven by the fact that in a post COVID world customer experience is set to be the key differentiator and driver of competitive advantage in claims.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880931/19272" target="_top" id="1880931">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880931" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880931/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Thank you for your interest in ABBYY and its technologies.
 
 [Read the report](https://digital.abbyy.com/hubfs/content/report-insurance-TIN-digital-claims-en.pdf "Read the report") 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136616/26400" target="_top" id="2136616">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136616" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2052063/7443" target="_top" id="2052063">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052063" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136616/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052063/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -183,8 +121,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -192,4 +128,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/new-no-budget-no-problem-heres-your-list-of-free-intra-experts/"><u>[New] No Budget? No Problem! Here's Your List of Free Intra Experts</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-recordwin11-no-fuss-easy-screen-recorder-for-pcs-for-2024/"><u>[New] RecordWin11 No-Fuss, Easy Screen Recorder for PCs for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/1725284078500-winxdvd/"><u>人気WinXDVDを完全マスターするための使い方・テクニック解説!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/choosing-the-best-video-codec-handbrakes-h264-vs-mpeg-4-for-dvd-conversion/"><u>Choosing the Best Video Codec: HandBrake's H.264 Vs MPEG-4 for DVD Conversion</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effortlessly-change-wmv-videos-to-mp4-for-mac-and-windows-10-users-no-cost/"><u>Effortlessly Change WMV Videos to MP4 for Mac and Windows 10 Users – No Cost!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/expert-online-assistance-hub-winx-dvd-ripping-and-video-conversion-solutions/"><u>Expert Online Assistance Hub: WinX DVD Ripping & Video Conversion Solutions</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-master-the-art-of-editing-story-remix-and-windows-photos-synergy/"><u>In 2024, Master the Art of Editing Story Remix & Windows Photos Synergy</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-animators-guide-to-elite-3d-design-and-rendering-applications/"><u>In 2024, The Animator's Guide to Elite 3D Design and Rendering Applications</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-transfer-of-ibooks-to-your-android-device-at-no-cost/"><u>Seamless Transfer of iBooks to Your Android Device at No Cost</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/top-13-cost-free-dvd-player-apps-compatible-with-windows-10-and-11-a-comprehensive-guide/"><u>Top 13 Cost-Free DVD Player Apps Compatible with Windows 10 and 11: A Comprehensive Guide</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-guide-making-your-usb-drive-recognizable-again/"><u>Troubleshooting Guide: Making Your USB Drive Recognizable Again</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-push-to-talk-malfunctions-in-overwatch-gameplay/"><u>Troubleshooting Push-to-Talk Malfunctions in Overwatch Gameplay</u></a></li>
+</ul></div>
 

@@ -1,69 +1,21 @@
 ---
 title: Découvrez Les Nouvelles Fonctionnalités D'ABBYY FlexiCapture Avec Un Système De Suivi Et De Reporting Exceptionnellement Efficace
-date: 2024-09-10T10:04:24.816Z
-updated: 2024-09-11T10:04:24.816Z
+date: 2024-09-25T18:43:13.586Z
+updated: 2024-09-30T18:39:43.448Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/7ad836b78743150f7926162559e15271095acf4f64d610e7943b29ad8777b2c6.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Découvrez Les Nouvelles Fonctionnalités D'ABBYY FlexiCapture Avec Un Système De Suivi Et De Reporting Exceptionnellement Efficace
 
 [Actualités](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Les solutions ABBYY FlexiCapture s’étoffent d’un nouveau système de suivi et de reporting ultra performant
 
 20 septembre 2016
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 #### _Présenté au Salon Solutions à Paris du 20 au 22 septembre, ce nouveau module permet aux organisations d’augmenter la transparence, de se mettre en conformité et de contrôler les processus de traitement des documents et de gestion de l’information_ 
 
@@ -117,8 +69,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -126,4 +76,25 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-resources.techidaily.com/new-comprehensive-exploration-of-vsco-image-processing/"><u>[New] Comprehensive Exploration of VSCO Image Processing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-best-practices-for-filming-and-sharing-immersive-content-on-fb-for-2024/"><u>[Updated] Best Practices for Filming and Sharing Immersive Content on FB for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/iphonedvddvd/"><u>「IPhoneビデオをDVDへ変換!無料ツール、ショップ、お勧めのDVDバーナー一覧」</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effizientes-dvd-burning-auf-dem-pc-professionelle-tipps-fur-windows-10-nutzer-mit-erstklassigen-brennersoftwarelosungen/"><u>Effizientes DVD Burning Auf Dem PC: Professionelle Tipps Für Windows 10 Nutzer Mit Erstklassigen Brennersoftwarelösungen</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ensure-peak-performance-latest-epson-wf-372-printer-driver-downloads-and-updates-await/"><u>Ensure Peak Performance: Latest Epson WF 372# Printer Driver Downloads and Updates Await!</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/fixing-cctv-video-glitches-a-guide/"><u>Fixing CCTV Video Glitches: A Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-from-monotonous-to-melodic-mastering-personalization-of-androids-audio-alerts/"><u>In 2024, From Monotonous to Melodic Mastering Personalization of Android's Audio Alerts</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-honor-magic-5-lite-location-on-skout-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Honor Magic 5 Lite Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-apps-and-online-tools-to-track-samsung-galaxy-s23-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Samsung Galaxy S23 Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/los-mejores-softwares-de-grabacion-de-pantalla-en-pc-con-windows-1187-guia-para-tomar-fotos-y-videos-totalizados-de-tu-pantalla/"><u>Los Mejores Softwares De Grabación De Pantalla en PC Con Windows 11/8/7: Guía Para Tomar Fotos Y Vídeos Totalizados De Tu Pantalla</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/quicktime-mov-file-playback-issues-resolving-error-2048/"><u>QuickTime MOV File Playback Issues: Resolving Error 2048</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

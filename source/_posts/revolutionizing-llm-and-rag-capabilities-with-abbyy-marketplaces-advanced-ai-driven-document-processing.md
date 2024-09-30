@@ -1,75 +1,21 @@
 ---
 title: Revolutionizing LLM and Rag Capabilities with ABBYY Marketplace's Advanced AI-Driven Document Processing
-date: 2024-09-10T10:04:26.526Z
-updated: 2024-09-11T10:04:26.526Z
+date: 2024-09-28T17:58:06.761Z
+updated: 2024-09-30T16:42:04.509Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/d9d28999ab80c3fe303824be9f1e02b9cc335e9a7ef77a5fdd8ceeee3dcb3523.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Revolutionizing LLM and Rag Capabilities with ABBYY Marketplace's Advanced AI-Driven Document Processing
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYYs neuer Marketplace bietet KI-Modelle, die den Datenhunger effektiver LLMs stillen
 
 Mai 15, 2024
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/company/newsroom/content-images/abbyy-redesigned-marketplace-preview.jpg?h=418&iar=0&w=743)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1993645">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ##### Umfangreiche KI-Modellen-Bibliothek erleichtert die Implementierung, beschleunigt die Time-to-Value und unterstützt bei der Nutzung von Retrieval-Augmented Generation (RAG) mit ABBYY Vantage
 
@@ -100,19 +46,12 @@ ABBYY Vantage ermöglicht eine effiziente und genaue Extraktion, Verarbeitung un
 
 [Besuchen Sie den ABBYY Marketplace](https://tools.techidaily.com/abbyy/products/), um Zugang zu seiner Bibliothek mit vortrainierten KI-Skills , Konnektoren und Assets von ABBYY und seinem breiten Partnernetzwerk für die intelligente Automatisierung von Dokumentenprozessen zu erhalten. Weitere Informationen über ABBYY KI-Lösungen finden Sie unter [www.abbyy.com](https://tools.techidaily.com/abbyy/products/).
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://bluettius.sjv.io/c/5597632/2148619/17108" target="_top" id="2148619">
+  <img src="//a.impactradius-go.com/display-ad/17108-2148619" border="0" alt="https://techidaily.com" width="100" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2148619/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Über ABBYY
 
@@ -128,8 +67,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -137,4 +74,19 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-techniques.techidaily.com/new-hook-your-viewers-quickly-with-these-6-video-types/"><u>[New] Hook Your Viewers Quickly with These 6 Video Types</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-troubleshooting-video-interruptions-on-facebook-live-for-2024/"><u>[Updated] Troubleshooting Video Interruptions on Facebook LIVE for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-iphone-6-plus-online-without-jailbreak-by-drfone-ios/"><u>How to Unlock SIM Card on iPhone 6 Plus online without jailbreak</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>In 2024, Methods to Change GPS Location On Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://discover-docs.techidaily.com/mise-a-niveau-de-votre-contenu-video-convertissez-vos-fichiers-mod-en-avi-facilement-et-sans-frais-via-movavi-online/"><u>Mise À Niveau De Votre Contenu Vidéo : Convertissez Vos Fichiers MOD en AVI Facilement Et Sans Frais, via Movavi Online</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-the-ultimate-guide-to-fast-video-trimming-on-mac-tips-and-tricks/"><u>New In 2024, The Ultimate Guide to Fast Video Trimming on Mac Tips and Tricks</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimizing-billing-how-abbyy-and-m-files-revolutionize-invoicing-efficiency/"><u>Optimizing Billing: How ABBYY and M-Files Revolutionize Invoicing Efficiency</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/revolutionize-site-traffic-using-advanced-tracking-technology-tools/"><u>Revolutionize Site Traffic Using Advanced Tracking Technology Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-connection-between-abbyy-flexicapture-and-paperstream-by-pfu-software-suite/"><u>Seamless Connection Between ABBYY FlexiCapture and PaperStream by PFU Software Suite</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamlessly-transform-your-library-with-abbyys-latest-innovation-bookscanner-app/"><u>Seamlessly Transform Your Library with ABBYY's Latest Innovation - BookScanner App!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/smart-automation-and-secure-document-handling-solutions-for-us-federal-agencies/"><u>Smart Automation & Secure Document Handling Solutions for U.S. Federal Agencies</u></a></li>
+</ul></div>
 

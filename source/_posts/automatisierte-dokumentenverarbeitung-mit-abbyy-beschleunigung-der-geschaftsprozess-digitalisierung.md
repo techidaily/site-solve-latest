@@ -1,63 +1,21 @@
 ---
 title: Automatisierte Dokumentenverarbeitung Mit ABBYY - Beschleunigung Der Geschäftsprozess-Digitalisierung
-date: 2024-09-10T10:04:26.032Z
-updated: 2024-09-11T10:04:26.032Z
+date: 2024-09-23T16:15:01.193Z
+updated: 2024-09-30T16:01:27.748Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/4f408d1e600338fdfbc4fe3abf110c58fed31529d9f9f53c6cd72af0ec21a5e5.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123469/16836" target="_top" id="2123469">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123469" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123469/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Automatisierte Dokumentenverarbeitung Mit ABBYY - Beschleunigung Der Geschäftsprozess-Digitalisierung
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## Intelligente Dokumentenerfassung von ABBYY beschleunigt digitale Transformation von Geschäftsprozessen
 
 19\. Dezember 2017
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY Europe, ein führender Anbieter von Technologien und Lösungen für Dokumentenerkennung, Data Capture und Linguistik, hat heute die Verfügbarkeit einer neuen Version von [ABBYY FlexiCapture](https://tools.techidaily.com/abbyy/products/) auf dem deutschsprachigen Markt bekanntgegeben. Die hochgradig skalierbare und universelle Enterprise-Capture-Plattform klassifiziert schriftliche Kundenkommunikation sowie Dokumente aus vielfältigen Geschäftsprozessen, extrahiert automatisch relevante Daten, verifiziert diese und leitet sie an die entsprechenden Workflows weiter. Durch den Einsatz einer Reihe automatisierter Techniken, u.a. zum maschinellen Lernen, löst FlexiCapture die lange vorhandene Komplexität in der Datenerfassungs- und Datenverarbeitungslandschaft weiter auf und definiert diesen Softwarebereich neu.
 
@@ -113,8 +71,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -122,4 +78,25 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-elevate-your-edits-10-essential-apps-for-instagram-videos/"><u>2024 Approved Elevate Your Edits 10 Essential Apps for Instagram Videos</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-pivot-from-srt-to-professional-audio-standards-with-confidence/"><u>2024 Approved Pivot From SRT to Professional Audio Standards with Confidence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/automated-user-tracking-with-advanced-analytics-enhanced-via-cookiebot-technology/"><u>Automated User Tracking with Advanced Analytics - Enhanced via Cookiebot Technology</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/bug-fix-update-cod-modern-warfare-3-the-solution-to-overcome-the-unexpected-app-halt/"><u>Bug Fix Update: Cod Modern Warfare #3 - The Solution to Overcome the Unexpected App Halt</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comment-butagaz-et-abbyy-revolutionnent-lechange-de-fournisseur-denergie-individuel-avec-des-outils-technologiques-avances/"><u>Comment Butagaz Et ABBYY Révolutionnent L'échange De Fournisseur D’énergie Individuel Avec Des Outils Technologiques Avancés</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comprendre-la-distinction-entre-ocr-et-idp-une-explication-detaillee/"><u>Comprendre La Distinction Entre OCR Et IDP: Une Explication Détaillée</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-analytics-enhancing-your-sites-performance/"><u>Cookiebot-Driven Analytics: Enhancing Your Site's Performance</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-automation-boost-your-sites-efficiency-and-traffic/"><u>Cookiebot-Driven Automation: Boost Your Site's Efficiency and Traffic!</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-samsung-galaxy-xcover-6-pro-tactical-edition-location-on-skout-drfone-by-drfone-virtual-android/"><u>How to Change Samsung Galaxy XCover 6 Pro Tactical Edition Location on Skout | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-enhance-your-asmr-experience-with-top-tier-mics/"><u>In 2024, Enhance Your ASMR Experience with Top-Tier Mics</u></a></li>
+<li><a href="https://discover-community.techidaily.com/topo-5-estrategias-para-transferir-conteudo-de-dvds-para-um-pc-windows-ou-mac-em-2023/"><u>Topo 5 Estratégias Para Transferir Conteúdo De DVDs Para Um PC Windows Ou Mac Em 2023</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

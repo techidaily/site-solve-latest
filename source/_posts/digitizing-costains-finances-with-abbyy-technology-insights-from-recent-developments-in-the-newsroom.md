@@ -1,7 +1,7 @@
 ---
 title: "Digitizing Costain's Finances with ABBYY Technology: Insights From Recent Developments in the Newsroom"
-date: 2024-08-25T23:33:59.497Z
-updated: 2024-08-26T23:33:59.497Z
+date: 2024-09-28T19:52:32.053Z
+updated: 2024-09-30T16:20:51.083Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/5b6554e76aaa2a052eebb5ed360ccf43529d16f47d56cedf742a90d738a59cc9.jpg
@@ -70,8 +70,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -79,16 +77,33 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/ed-how-to-matchmake-for-maximum-viewership-on-youtube-for-2024/"><u>[Updated] How to Matchmake for Maximum Viewership on YouTube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-no-splurge-audio-devices-for-yt-beginners/"><u>[Updated] No-Splurge Audio Devices for YT Beginners</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/demystifying-av1-encoding-basics/"><u>Demystifying AV1 Encoding Basics</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effortless-setup-of-kodi-189-on-your-amazon-fire-tv-stick-complete-beginners-tutorial/"><u>Effortless Setup of Kodi 18.9 on Your Amazon Fire TV Stick - Complete Beginner's Tutorial</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/effortless-tutorials-master-the-art-of-saving-messages-and-clips-from-facebook-messenger/"><u>Effortless Tutorials: Master the Art of Saving Messages & Clips From Facebook Messenger</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-zte-nubia-z60-ultra-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From ZTE Nubia Z60 Ultra to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-asus-rog-phone-8-pro-phone-frp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Asus ROG Phone 8 Pro Phone FRP Lock</u></a></li>
+<li><a href="https://fox-that.techidaily.com/iphone-reboot-techniques-solving-stuck-on-logo-problem-in-seven-ways/"><u>IPhone Reboot Techniques: Solving 'Stuck on Logo' Problem in Seven Ways</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-the-art-of-picking-out-the-best-cellphone-protector/"><u>Mastering the Art of Picking Out the Best Cellphone Protector</u></a></li>
+<li><a href="https://meme-emoji.techidaily.com/new-2024-approved-best-10-emoji-makers-to-create-your-own-emojispconlineandroidiphone/"><u>New 2024 Approved Best 10 Emoji Makers to Create Your Own EmojisPC/Online/Android/iPhone</u></a></li>
+<li><a href="https://solve-news.techidaily.com/revolutionize-your-online-advertising-with-the-power-of-cookiebot-integration/"><u>Revolutionize Your Online Advertising with the Power of Cookiebot Integration</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamless-incornporation-of-youtube-content-into-powerpoint-slides-how-to/"><u>Seamless Incornporation of YouTube Content Into PowerPoint Slides - How To</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/simple-guide-converting-your-dvds-to-high-quality-dolby-digital-and-dts-audio-formats/"><u>Simple Guide: Converting Your DVDs to High-Quality Dolby Digital and DTS Audio Formats</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-rated-platforms-for-effortlessly-downloading-videos-from-the-web/"><u>Top Rated Platforms for Effortlessly Downloading Videos From the Web</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transform-your-online-presence-with-manycam-powerful-live-video-editing-and-virtual-webcam-technology/"><u>Transform Your Online Presence with ManyCam: Powerful Live Video Editing and Virtual Webcam Technology.</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/ultimate-guide-steps-for-students-and-content-creators-to-successfully-download-panopto-lectures/"><u>Ultimate Guide: Steps for Students and Content Creators to Successfully Download Panopto Lectures</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/updated-in-2024-fine-tuning-your-films-rhythm-synchronizing-soundtracks-with-video-in-final-cut-pro-x/"><u>Updated In 2024, Fine-Tuning Your Films Rhythm Synchronizing Soundtracks with Video in Final Cut Pro X</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/virtual-camera-revolution-elevate-online-presentations-using-manycam-technology/"><u>Virtual Camera Revolution: Elevate Online Presentations Using ManyCam Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/44or44k944kz44oz5zcr44gr44ky44o844og44k544oi44oq44o844of44oz44kw44ot44oh44kq5yem55cg44gu6kmz57sw44ks44kk44oj/"><u>パソコン向けゲームストリーミングビデオ処理の詳細ガイド</u></a></li>
+</ul></div>
+
 <!-- affiliate ads begin -->
-<span id="1997795">
-					<video width="250" height="250" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/23621-1997795">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1997795.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:250px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fproteahair.pxf.io%2Fc%2F5597632%2F1997795%2F23621'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1997795/23621" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 

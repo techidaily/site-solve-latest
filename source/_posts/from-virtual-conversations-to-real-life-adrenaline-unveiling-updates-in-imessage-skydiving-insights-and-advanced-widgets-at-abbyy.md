@@ -1,7 +1,7 @@
 ---
 title: "From Virtual Conversations to Real-Life Adrenaline: Unveiling Updates in iMessage, Skydiving Insights, and Advanced Widgets at ABBYY"
-date: 2024-08-25T23:34:41.717Z
-updated: 2024-08-26T23:34:41.717Z
+date: 2024-09-24T18:31:23.274Z
+updated: 2024-09-30T17:52:56.853Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/04a734a9937eba2d7e4ad06c3d50be8d29a9cd1edbd98c5f96a14775cba2210b.jpg
@@ -30,6 +30,13 @@ We all love widgets, those little applets that conveniently sit on the home scre
 
 Here’s how the [FineScanner](http://qrs.ly/pl4x25p)widget looks like when it shows the latest document that you opened in the main app:![iOS Add Widgets Home Screen finescanner](https://static1.abbyy.com/abbyycommedia/26250/mm32-ios-widget-e1525445116646.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137394/7443" target="_top" id="2137394">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137394" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137394/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Click [here](https://support.apple.com/en-us/HT207122) if you want to learn more. Enjoy your widgets!
 
 ## **Android Tip:** **How to Add Widgets to Your Home Screen**
@@ -40,9 +47,6 @@ Naturally, there are widgets for Android apps as well, and in certain respects, 
 2. Tap the **Widgets** icon at the bottom of the screen.![Android set Widgets Home Screen](https://static1.abbyy.com/abbyycommedia/26251/screenshot_20180430-190926_samsung-experience-home-e1525076867219.jpg)
 3. Leaf through the screens with the available widgets until you see the clock widget. Tap and hold the widget until you see the small images of your home screens.![search for available widgets android](https://static1.abbyy.com/abbyycommedia/26252/screenshot_20180430-190933_samsung-experience-home-e1525076909519.jpg)
 4. Drag and drop the clock widget onto a home screen.
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Depending on the version of your OS, the selected widget will be placed into the available free space or you will need to long-tap it and drag it to the desired location.
 
@@ -73,15 +77,30 @@ Now if you want to send a scan using iMessage:
 2. Select the document in the list and specify the format to be used. For scans, select PDF and JPEG. For recognized documents, select PDF and, for example, DOCX or TXT. ![ABBYY Send Documents iMessage finescanner](https://static1.abbyy.com/abbyycommedia/26253/fs-iphone6p-en2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880940/19272" target="_top" id="1880940">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880940" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880940/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## **App of the Week: Trello** 
 
 [Trello](https://trello.com/) is one of the most widely used online collaboration tools. It helps you organize and manage your project using the popular Japanese kanban boards.![App Trello manage tasks control projects](https://static1.abbyy.com/abbyycommedia/26254/screen-shot-2012-03-12-at-90700-am-e1525076970704.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 In [Trello](https://trello.com/), you manage your tasks by arranging cards of various classes on a board. Typically, tasks are classified into:
 
 * Planned,
@@ -92,20 +111,12 @@ In [Trello](https://trello.com/), you manage your tasks by arranging cards of va
 
 Available on [iOS](https://itunes.apple.com/ru/app/trello/id461504587) and [Android](https://play.google.com/store/apps/details?id=com.trello&hl=ru).
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
-<!-- affiliate ads end -->
 ## First-Hand Experience: Advice From a Colleague
 
 _By Olga Pavlinova, Head of Event Group_ 
 
 ![abbyy advice skydiving jump air](https://static1.abbyy.com/abbyycommedia/26255/15442197_1162392030505919_6672111307287218530_n.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296685&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2022/video-pp/ScreenshotSlider/Nero-Video-Advanced-editing.JPG" border="0">Simple and intuitive video editing
-🎬 Nero Video:
-The powerful video editing program for your Windows PC</a>
-<!-- affiliate ads end -->
 Almost every self-help and self-improvement book will include this piece of advice: “Always try something new.” Today, I have some tips for those who are after new experiences and are looking into where to find them.
 
 If you are seeking new thrills, why not take to the skies? The skydiving season is just around the corner, and that means that you can finally take the plunge and do a parachute jump from 4,000 meters. How’s that for something new?
@@ -132,9 +143,6 @@ P.S. You can find our previous newsletter [here](https://tools.techidaily.com/ab
 
 [Mobile](https://tools.techidaily.com/abbyy/products/) 
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ### Like, share or repost
 
 Share 
@@ -190,8 +198,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,4 +205,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-videos.techidaily.com/updated-2024-approved-convert-facebook-audio-to-mp3/"><u>[Updated] 2024 Approved Convert Facebook Audio to MP3</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-efficiently-convert-youtube-to-desktop-format-for-2024/"><u>[Updated] Efficiently Convert YouTube to Desktop Format for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-pioneering-practices-in-multichannel-video-distribution-fbwhatsapp/"><u>[Updated] In 2024, Pioneering Practices in Multichannel Video Distribution (FB/WhatsApp)</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-what-happens-to-your-facebook-live-if-its-flagged-for-copyright/"><u>[Updated] In 2024, What Happens to Your Facebook Live if It’s Flagged for Copyright?</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-flip-side-to-visual-storytelling-how-to-rotate-your-images-on-instagram/"><u>[Updated] The Flip-Side to Visual Storytelling How to Rotate Your Images on Instagram</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-next-gen-homes-in-minecraft-top-6-concepts/"><u>2024 Approved Next-Gen Homes in Minecraft Top 6 Concepts</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-rates-with-advanced-cookiebot-technology/"><u>Enhanced Conversion Rates with Advanced Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-rates-with-our-customized-cookiebot-technology/"><u>Enhanced Conversion Rates with Our Customized Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-tracking-with-our-cutting-edge-cookiebot-technology/"><u>Enhanced Conversion Tracking with Our Cutting-Edge Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhanced-performance-using-advanced-cookie-technology/"><u>Enhanced Performance Using Advanced Cookie Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-deloittes-ediscovery-toolkit-abbyy-contribution-successfully-detailed-in-client-testimonial/"><u>Enhancing Deloitte's eDiscovery Toolkit: ABBYY Contribution Successfully Detailed in Client Testimonial</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/enhancing-efficiency-with-intelligent-process-analysis-case-study-insights/"><u>Enhancing Efficiency with Intelligent Process Analysis: Case Study Insights</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/evaluating-the-4tb-patriot-viper-vp4300-lite-a-balance-between-capacity-and-cost-explored/"><u>Evaluating the 4TB Patriot Viper VP4300 Lite: A Balance Between Capacity and Cost Explored</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-vivo-y100-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos From Vivo Y100 to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/the-future-is-here-free-innovative-fb-story-enhancers/"><u>The Future Is Here Free, Innovative FB Story Enhancers</u></a></li>
+</ul></div>
 

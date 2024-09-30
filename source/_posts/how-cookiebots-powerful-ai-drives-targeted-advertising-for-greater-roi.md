@@ -1,63 +1,21 @@
 ---
 title: How Cookiebot's Powerful AI Drives Targeted Advertising for Greater ROI
-date: 2024-09-10T10:04:24.454Z
-updated: 2024-09-11T10:04:24.454Z
+date: 2024-09-23T18:07:26.459Z
+updated: 2024-09-30T16:10:49.470Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/9b682067d65f5ab52932cb43774adc7ed3c1ad8801c900338b2acd832ca95b6e.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## How Cookiebot's Powerful AI Drives Targeted Advertising for Greater ROI
 
 [Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136612/26400" target="_top" id="2136612">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136612" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136612/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## ABBYY reflektiert mit neuem Branddesign seinen Fokus auf Menschen und die Digitale Transformation
 
 18\. März 2021
 
 ![](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ABBYY, ein globales Unternehmen für Digital Intelligence, hat heute seine neue, dynamische Corporate Brand Identity sowie das aktualisierte Logo vorgestellt. Das neue Branding, das zusammen mit der Marken- und Designagentur [Shuka](https://shuka.design/) entwickelt wurde, spiegelt wieder, wofür ABBYY steht: ein visionärer, innovativer, zuverlässiger und kreativer Experte, der Unternehmen weltweit hilft, Wege der Digitalen Transformation neu zu gestalten und zu beschleunigen
 
@@ -92,8 +50,6 @@ Vernetzen Sie sich mit uns
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -101,4 +57,25 @@ Vernetzen Sie sich mit uns
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-graphicgenius-suite/"><u>[Updated] In 2024, GraphicGenius Suite</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-step-by-step-embarking-on-your-ifunny-meme-adventure/"><u>[Updated] Step-By-Step Embarking on Your iFunny Meme Adventure</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/custom-templatesn-indicates-a-new-line-for-readability-create-your-own-unique-project-design-using-the-template-editor-available-under-file-)-new-template-s29/"><u>Custom Templates( n Indicates a New Line for Readability): Create Your Own Unique Project Design Using the Template Editor Available Under File > New Template. Save as a .macxdvd File to Use in Future Projects.</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-lava-yuva-3-screen-sharing-drfone-by-drfone-android/"><u>How To Do Lava Yuva 3 Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-contacts-from-nubia-by-fonelab-android-recover-contacts/"><u>How to recover deleted contacts from Nubia .</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/offline-accessible-hilarious-anime-downloads-for-ios-devices-save-and-watch-anywhere/"><u>Offline Accessible Hilarious Anime Downloads for iOS Devices - Save and Watch Anywhere!</u></a></li>
+<li><a href="https://win-blog.techidaily.com/overcoming-halo-infinite-visual-glitches-the-ultimate-guide-to-resolution/"><u>Overcoming Halo Infinite Visual Glitches: The Ultimate Guide to Resolution</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-guide-adding-captionssubtitles-to-videos-in-various-formats-mp4-avi-mkv-flv/"><u>Step-by-Step Guide: Adding Captions/Subtitles to Videos in Various Formats (MP4, AVI, MKV, FLV)</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-messages-from-galaxy-s23-ultra-by-fonelab-android-recover-messages/"><u>The way to get back lost messages from Galaxy S23 Ultra</u></a></li>
+<li><a href="https://blog-min.techidaily.com/1726223597128-mp4-3gpp-movavi/"><u>무료 MP4 풍부한 3GPP 구성원에 대한 인터넷 기술의 유용한 방법 - Movavi</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/windowstsutaya/"><u>マックとWindowsのどちらでも対応！レンタル映像のコピー・ダビングガイド：TSUTAYA、ゲオ向けトリック!</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

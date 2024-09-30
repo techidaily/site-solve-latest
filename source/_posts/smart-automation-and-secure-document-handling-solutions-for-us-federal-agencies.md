@@ -1,7 +1,7 @@
 ---
 title: Smart Automation & Secure Document Handling Solutions for U.S. Federal Agencies
-date: 2024-09-10T10:04:25.226Z
-updated: 2024-09-11T10:04:25.226Z
+date: 2024-09-29T17:16:54.675Z
+updated: 2024-09-30T18:06:02.344Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/b2bf4cd4c4150768a4991186ca82f84c6e82b391b455745b734da2cba3671e13.jpg
@@ -17,37 +17,9 @@ January 26, 2023
 
 ![](https://static5.abbyy.com/abbyycommedia/36638/intelligent-automation-for-the-federal-government-abbyy.png) 
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 In this episode, Brian Hettinger joined the [Federal Tech Podcast](https://www.theoakmontgroupllc.com/ep-43-abbyy-identity-management/) to talk all about how federal governments can leverage innovative technology to improve customer experiences, prevent identity theft, and how identity affirmation isn't just about data—you need to have a multifaceted approach.
 
 [To get started with ABBYY Proof of Identity, please contact us here.](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130531/26400" target="_top" id="2130531">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130531" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130531/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ### Episode transcript
 
@@ -151,79 +123,51 @@ But what's also cool with this technology, John, is we're able to use all that a
 
 [Artificial Intelligence (AI)](https://www.abbyy.com/blog/artificial-intelligence-ai/ "Artificial Intelligence (AI)") [Customer Onboarding](https://tools.techidaily.com/abbyy/products/) [Digital Transformation](https://tools.techidaily.com/abbyy/products/) [Intelligent Automation](https://tools.techidaily.com/abbyy/products/) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Like, share or repost
 
 Share 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1793213">
-					<video width="864" height="1296" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1793213.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19135-1793213">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1793213.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftinyland.pxf.io%2Fc%2F5597632%2F1793213%2F19135'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793213/19135" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2043603/7443" target="_top" id="2043603">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043603" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043603/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Related posts
 
 ![](https://static2.abbyy.com/abbyycommedia/36193/abbyy-poi-blog.png) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135357/19272" target="_top" id="2135357">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135357" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134224/18498" target="_top" id="2134224">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134224" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135357/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134224/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [What Is Identity Proofing and Why It’s Only Part of the Solution](https://tools.techidaily.com/abbyy/products/) 
 
 ![](https://static1.abbyy.com/abbyycommedia/36260/poi_id-verification-not-enough-to-prevent-fraud-heres-why_v2.png) 
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 [Identity Verification is Not Enough to Prevent Fraud—Here's Why](https://tools.techidaily.com/abbyy/products/) 
 
@@ -277,8 +221,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -286,4 +228,23 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://win-blog.techidaily.com/solved-microsoft-flight-simulator-2020-stuck-on-checking-for-updates/"><u>[SOLVED] Microsoft Flight Simulator 2020 Stuck on “Checking For Updates”</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-crossing-platforms-upload-video-to-twittertumblr/"><u>[Updated] 2024 Approved Crossing Platforms Upload Video to Twitter/Tumblr</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/winx-dvd-ripper-platinum-dvd-32microsoft-appleandroiddvd/"><u>公式 WinX DVD Ripper Platinum - DVDコピープロテクトが完璧に解除! 高効率32倍速でMicrosoft, AppleデバイスとAndroidへのDVD変換</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/best-12-youtube-game-openers-a-comparative-guide-no-expense-for-2024/"><u>Best 12 YouTube Game Openers A Comparative Guide (No Expense) for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/comprehensive-tutorial-on-adjusting-video-orientation-in-vlc/"><u>Comprehensive Tutorial on Adjusting Video Orientation in VLC</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/convert-your-media-files-top-8-no-cost-methods-from-mts-to-mp4-on-pc-and-mac/"><u>Convert Your Media Files: Top 8 No-Cost Methods From MTS to MP4 on PC & Mac</u></a></li>
+<li><a href="https://location-social.techidaily.com/does-realme-10t-5g-have-find-my-friends-drfone-by-drfone-virtual-android/"><u>Does Realme 10T 5G Have Find My Friends? | Dr.fone</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-methods-for-pc-users-to-digitize-and-save-their-old-vhs-collection-as-dvd-files/"><u>Easy Methods for PC Users to Digitize and Save Their Old VHS Collection as DVD Files</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/expert-review-of-no-loss-mkv-splitters-how-to-effortlessly-edit-videos-directly-on-your-pc/"><u>Expert Review of No-Loss MKV Splitters: How to Effortlessly Edit Videos Directly on Your PC</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/how-to-get-the-latest-hp-network-driver-updates-for-your-windows-pc-windows-1178/"><u>How to Get the Latest HP Network Driver Updates for Your Windows PC (Windows 11/7/8)</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-full-guide-to-catch-100-iv-pokemon-using-a-map-on-motorola-moto-g34-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Catch 100 IV Pokémon Using a Map On Motorola Moto G34 5G | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/the-contrast-between-brazilian-and-european-keyboard-features/"><u>The Contrast Between Brazilian & European Keyboard Features</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/top-6-methods-for-transferring-dvd-content-to-pc-a-comprehensive-guide/"><u>Top 6 Methods for Transferring DVD Content to PC : A Comprehensive Guide</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-guide-fixing-warzone-20-pc-game-crashes/"><u>Troubleshooting Guide: Fixing 'Warzone 2.0' PC Game Crashes</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/winx-dvd-ripper-platinum-accelerate-your-dvd-conversion-speed-by-32x-on-windows-11/"><u>WinX DVD Ripper Platinum: Accelerate Your DVD Conversion Speed by 32X on Windows 11</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/44ot44od44oi44os44o844oi44gu5qac5bplus144go44gd44km44gm55s76loq44cb6zplusz6isi44gr5lio44gi44kl5b2x6zplus77ya44kz44o844oh44od44kv5ywl6zaa/"><u>ビットレートの概念とそれが画質、音脈に与える影響：コーデック入門</u></a></li>
+</ul></div>
 

@@ -1,65 +1,24 @@
 ---
 title: Enhancing ER Operations with ABBYY's Smart Analytics and OCR Technology
-date: 2024-09-10T10:04:26.367Z
-updated: 2024-09-11T10:04:26.367Z
+date: 2024-09-25T16:22:26.650Z
+updated: 2024-09-30T20:17:53.203Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/6739390ee0fc340b9fd97277963ee8c4fb9d6425e2a9f2aebfeaf1a00361bc20.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Enhancing ER Operations with ABBYY's Smart Analytics and OCR Technology
 
 Solution brief
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## Emergency Department – Streamline ED Processes to Reduce Costs and Improve Patient Satisfaction
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137380/7443" target="_top" id="2137380">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137380" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137380/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Taking control of ED processes to reduce costs and improve patient satisfaction
 
@@ -67,25 +26,12 @@ The Emergency Department is a vital focus area for hospitals aiming to increase 
 
 ABBYY’s Process Intelligence platform applies Artificial Intelligence to the data from your healthcare systems to build a realistic digital model of your processes that includes variations and exceptions. It provides you with a clear picture of how your ED processes are executing on a day-to-day basis so you can target efforts to eliminate efficiencies in the areas they’ll be most effective.
 
-
-
-
-
 <!-- affiliate ads begin -->
-<span id="1328683">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ### Download it now!
 
@@ -96,19 +42,12 @@ Download this Emergency Department solution brief to learn how you can gain the 
 * Reduce door-to-doctor time
 * Increase patient satisfaction
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 ## Thank you for your interest in ABBYY.
 
@@ -116,19 +55,12 @@ Download this Emergency Department solution brief to learn how you can gain the 
 
 ![Factoids 027 77X77](https://static4.abbyy.com/abbyycommedia/31652/factoids-027-77x77.svg)
 
-
-
-
-
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
-
-
-
 
 #### Have questions? [Contact ABBYY](https://tools.techidaily.com/abbyy/products/)
 
@@ -190,8 +122,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -199,4 +129,22 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-poker-playpersonalized-projections/"><u>[New] POKER PLAYPERSONALIZED PROJECTIONS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-best-youtube-thumbnail-size-how-to-make-a-thumbnail-for-youtube/"><u>[Updated] Best YouTube Thumbnail Size How to Make a Thumbnail for YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-mini-youtube-content-explained/"><u>[Updated] Mini YouTube Content Explained</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/abbyy-solutions-boosting-efficiency-and-reducing-costs-for-government-agencies-with-time-saving-technology/"><u>ABBYY Solutions: Boosting Efficiency and Reducing Costs for Government Agencies with Time-Saving Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/abbyys-marketing-visionary-bruce-orcutt-executive-head-of-brand-and-communications/"><u>ABBYY's Marketing Visionary - Bruce Orcutt, Executive Head of Brand & Communications</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/advanced-oversight-features-unveil-strategic-insights-within-the-abbyy-flexicapture-suite/"><u>Advanced Oversight Features Unveil Strategic Insights Within the ABBYY FlexiCapture Suite</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ati-radeon-hd-4200-driver-download-easily/"><u>ATI Radeon HD 4200 Driver Download Easily</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/automated-personalization-with-the-help-of-cookiebot-technology/"><u>Automated Personalization with the Help of Cookiebot Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/automated-traffic-generation-with-cookiebot-boost-your-sites-visibility/"><u>Automated Traffic Generation with Cookiebot: Boost Your Site's Visibility</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/boost-your-site-with-intelligent-tracking-choose-cookiebot/"><u>Boost Your Site with Intelligent Tracking: Choose Cookiebot</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comprehensive-evaluation-of-the-aukey-30-usb-hub-stylish-and-practical/"><u>Comprehensive Evaluation of the Aukey 3.0 USB Hub - Stylish and Practical</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/comprendre-le-processus-de-mining-benefices-et-applications-essentielles/"><u>Comprendre Le Processus De Mining : Benefices Et Applications Essentielles</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/get-the-newest-upgrade-for-your-brother-hl-l235n-dual-laser-printer/"><u>Get the Newest Upgrade for Your Brother HL-L235n Dual Laser Printer</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-do-honor-play-7t-screen-sharing-drfone-by-drfone-android/"><u>How To Do Honor Play 7T Screen Sharing | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-11-best-location-changers-for-tecno-phantom-v-flip-drfone-by-drfone-virtual-android/"><u>In 2024, 11 Best Location Changers for Tecno Phantom V Flip | Dr.fone</u></a></li>
+</ul></div>
 

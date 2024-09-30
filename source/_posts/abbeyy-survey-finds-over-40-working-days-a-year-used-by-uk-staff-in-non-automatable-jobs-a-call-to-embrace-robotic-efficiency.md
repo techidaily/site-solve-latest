@@ -1,63 +1,21 @@
 ---
 title: ABBEYY Survey Finds Over 40 Working Days a Year Used by UK Staff in Non-Automatable Jobs – A Call to Embrace Robotic Efficiency
-date: 2024-09-10T10:04:25.935Z
-updated: 2024-09-11T10:04:25.935Z
+date: 2024-09-27T16:48:44.294Z
+updated: 2024-09-30T16:35:34.320Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/a80aac0357f3c4788226453d272b3a23130ff4b40d591496be1b3a2b61ca7796.jpg
 ---
 
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 ## ABBEYY Survey Finds Over 40 Working Days a Year Used by UK Staff in Non-Automatable Jobs – A Call to Embrace Robotic Efficiency
 
 [Back to Newsroom](https://tools.techidaily.com/abbyy/products/)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123729/7443" target="_top" id="2123729">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123729" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123729/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 ## UK employees waste over 40 working days a year each on tasks that could be automated by robots, according to new ABBYY survey
 
 December 02, 2020
 
 ![ShutterStock](https://content.abbyy.com/-/media/project/abbyy/abbyy/branchtemplates/shutterstock_1272462163_1296-x-729.jpg?h=729&iar=0&w=1296)
-
-
-
-
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
 
 * _A quarter wanted to quit their job during the pandemic due to frustrating processes_
 * _Fewer than 2/3 of businesses started using new technologies since COVID-19 hit_
@@ -96,26 +54,6 @@ _“Not only do bad processes make your employees’ work harder – far from id
 
 ![UK employees waste over 40 working days a year each on tasks that could be automated by robots, according to new ABBYY survey](https://static1.abbyy.com/abbyycommedia/30408/abbyy-global-covid-technology-survey_us_1200x628.jpg)
 
-
-
-
-
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-
-
-
 **Methodology**
 
 The COVID-19 Technology and Business Process Survey was conducted by Opinium Research in November 2020 and sponsored by ABBYY. It surveyed 4,000 office workers across the UK, US, France, and Germany – 1,000 in each country – on the impact the COVID-19 pandemic had on their working practices, the challenges they faced, and the role of automation technologies in their day-to-day work.
@@ -139,8 +77,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -148,4 +84,27 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-find-videos-on-facebook/"><u>[Updated] 2023 | How to Find Videos on Facebook?</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-the-editors-playbook-advanced-pc-methods-for-youtube-mastery/"><u>[Updated] In 2024, The Editor's Playbook Advanced PC Methods for YouTube Mastery</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-conversions/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics and Conversions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-enhance-your-sites-user-experience-with-advanced-tracking-tools/"><u>Cookiebot-Enabled: Enhance Your Site's User Experience with Advanced Tracking Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-sites-the-secret-behind-improved-user-engagement/"><u>Cookiebot-Enhanced Sites: The Secret Behind Improved User Engagement</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-seamless-user-experience-and-optimized-conversions/"><u>Cookiebot-Enhanced: Seamless User Experience & Optimized Conversions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-the-key-ingredient-in-advanced-web-personalization/"><u>Cookiebot: The Key Ingredient in Advanced Web Personalization</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-hp-officejet-pro-8600-printer-drivers-and-software-for-windows-pcs/"><u>Download HP OfficeJet Pro 8600 Printer Drivers & Software for Windows PCs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/expert-take-on-acid-pro-and-competitive-analysis-for-2024/"><u>Expert Take on ACID Pro and Competitive Analysis for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-easy-iphonesideways-capturing-the-moment/"><u>In 2024, Easy iPhonesideways Capturing the Moment</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/24-efficient-video-cutting-techniques-to-boost-your-content/"><u>In 2024, Efficient Video Cutting Techniques to Boost Your Content</u></a></li>
+<li><a href="https://facebook.techidaily.com/limiting-personal-inbox-a-guide-to-minimizing-contacts/"><u>Limiting Personal Inbox: A Guide to Minimizing Contacts</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-free-online-movie-making-software-top-picks/"><u>New In 2024, Free Online Movie Making Software Top Picks</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

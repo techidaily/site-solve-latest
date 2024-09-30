@@ -1,7 +1,7 @@
 ---
 title: "Leading the Smart Doc Revolution: How ABBYY Emerged as Chief Player Based on ISG and Quadrant Assessments"
-date: 2024-08-25T23:34:47.170Z
-updated: 2024-08-26T23:34:47.170Z
+date: 2024-09-24T19:17:13.074Z
+updated: 2024-09-30T18:11:22.856Z
 categories:
   - abbyy
 thumbnail: https://thmb.techidaily.com/06e60fe3d947d58be6e231820ad1f116434db798e239b52d730db0c4a5927ced.jpg
@@ -41,20 +41,35 @@ La reconnaissance d’ABBYY en tant que leader de l’IDP intervient après le l
 * [Rapport ISG Provider Lens™ Intelligent Automation - Solutions & Services 2021 - Process Mining (U.S.)](https://tools.techidaily.com/abbyy/products/)
 * [Rapport Quadrant Knowledge Solutions SPARK Matrix for IDP 2021](https://tools.techidaily.com/abbyy/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### À propos d’ABBYY
 
 ABBYY permet aux entreprises d’appréhender de manière précise leurs process et contenus via sa plateforme d'[intelligence digitale](https://tools.techidaily.com/abbyy/products/). Les technologies d'ABBYY équipent plus de 5 000 entreprises, dont un grand nombre figurent dans le classement Fortune 500\. L’entreprise est reconnue pour ses solutions de pointe dans les domaines du [Content Intelligence](https://tools.techidaily.com/abbyy/products/) et du [Process Intelligence](https://tools.techidaily.com/abbyy/products/) qui ont pour vocation d’améliorer l'efficacité, la rentabilité et la compétitivité des entreprises ainsi que l’expérience client. ABBYY possède des bureaux dans 14 pays. Pour davantage d'informations, veuillez consulter le site <https://www.abbyy.com/fr/>.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ### Contact presse :
 
 ![Nophoto 110X110](https://static4.abbyy.com/abbyycommedia/34370/nophoto-110x110.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=4729507&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.nero.com/nero-com-wAssets/img/banners/2023/TIU/Nero_TuneItUp_Screen_2.webp" border="0">/a>
+<a href="https://appsumo.8odi.net/c/5597632/2151869/7443" target="_top" id="2151869">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151869/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 #### Bianca Stupp
 
 _ABBYY_
@@ -69,8 +84,6 @@ Connect with us
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -78,4 +91,19 @@ Connect with us
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-in-2024-elevate-your-instagram-strategy-with-expert-analytical-software/"><u>[New] In 2024, Elevate Your Instagram Strategy with Expert Analytical Software</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-explore-the-latest-in-picsart-a-comprehensive-guide-and-review/"><u>[Updated] Explore the Latest in PicsArt - A Comprehensive Guide and Review</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-innovative-solutions-exceeding-standard-fbx-recorders/"><u>2024 Approved Innovative Solutions Exceeding Standard FBX Recorders</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/astronaut-eyes-choosing-the-finest-fps-games/"><u>Astronaut Eyes Choosing the Finest FPS Games</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-personalization-boost-your-websites-user-experience/"><u>Cookiebot-Enabled Personalization: Boost Your Website's User Experience</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-enhance-your-websites-user-experience-with-personalization/"><u>Cookiebot-Enabled: Enhance Your Website's User Experience with Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-sites-power-your-online-presence/"><u>Cookiebot-Enhanced Sites: Power Your Online Presence</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-enrich-your-site-with-smart-crawling-technology/"><u>Cookiebot-Enhanced: Enrich Your Site with Smart Crawling Technology</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/digitale-zettelabfrage-in-munchens-hauptstadt-innovatives-wahlverfahren/"><u>Digitale Zettelabfrage in Münchens Hauptstadt - Innovatives Wahlverfahren</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/does-pope-francis-send-and-receive-electronic-mail-messages/"><u>Does Pope Francis Send and Receive Electronic Mail Messages?</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-15-best-strongest-pokemon-to-use-in-pokemon-go-pvp-leagues-for-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 15 Best Strongest Pokémon To Use in Pokémon GO PvP Leagues For Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-what-is-the-best-pokemon-for-pokemon-pvp-ranking-on-oppo-find-x7-drfone-by-drfone-virtual-android/"><u>In 2024, What is the best Pokemon for pokemon pvp ranking On Oppo Find X7? | Dr.fone</u></a></li>
+</ul></div>
 
