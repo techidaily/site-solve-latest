@@ -1,7 +1,7 @@
 ---
 title: 小さくしてビデオの解像度を下げる手順
-date: 2024-10-03T16:04:01.310Z
-updated: 2024-10-05T21:19:57.992Z
+date: 2024-10-07T21:16:21.290Z
+updated: 2024-10-11T21:30:10.345Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/b55c24263d5a9a2d0075e95ed2cba33cc134d0a45b0aad772e33e1d818e77a97.jpg
@@ -77,13 +77,6 @@ Open HD Video Converter Factory Pro and go into the **Converter** module. Click 
 
 ![Add OGG Files to the Program](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-01-01.webp) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 2\. Choose MP3 as Output Format**
 
 On the right side of the converter, hit on the format image to open the output format library. Next, head to the **Audio** section and select the **MP3** profile below. 
@@ -95,10 +88,10 @@ Below the format image, you can navigate to the **Parameter settings** section t
 ![Choose MP3 as Output Format](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-03-03.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 3\. Start Conversion**
@@ -108,19 +101,6 @@ Click the triangle button at the bottom to set an output folder or leave it as d
 ![Start Conversion with the Best OGG to MP3 Converter](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-04.webp) 
 
 ![Start Conversion with the Best OGG to MP3 Converter](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-04-04.webp) 
-
-<!-- affiliate ads begin -->
-<span id="1977023">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![Best Audio Format and Codec Converter](https://www.videoconverterfactory.com/tips/imgs-self/box-hdpro.png) 
 
@@ -133,16 +113,16 @@ WonderFox HD Video Converter Factory Pro is a top-rated audio format & codec con
  \* Know more features of [HD Video Converter Factory Pro >](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+<span id="1444782">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Handy OGG to MP3 Converter for Mac - Audacity
@@ -171,30 +151,30 @@ Step 1\. Open Audacity.
 ![Convert OGG in Audacity Free](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-05-05.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 4\. Choose a location and give a new filename. In the **Format Options** section, you can select an audio bitrate mode, the output quality, and audio channel. After that, click **Save** to start the conversion.
 
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094479/7443" target="_top" id="2094479">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094479" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094479/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Audacity Free Convert OGG to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-07-07.webp) 
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972679/19272" target="_top" id="1972679">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972679" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528685/16446" target="_top" id="1528685">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528685" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972679/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1883998/19272" target="_top" id="1883998">
-  <img src="//a.impactradius-go.com/display-ad/19272-1883998" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1883998/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528685/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Best OGG to MP3 Converters Online - Convertio
@@ -224,7 +204,27 @@ Step 5\. Hit the Download button to save the converted files.
 
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06.webp) 
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![Best Free OGG to MP3 Converters Online](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-06-06.webp) 
+
+<!-- affiliate ads begin -->
+<span id="1993650">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993650.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993650">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993650.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993650%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993650/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## In Conclusion 
 
@@ -236,14 +236,14 @@ Similar Articles
 
 [![Convert DVD to MP3](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-1.webp) Convert DVD to MP3](https://tools.techidaily.com/videoconverterfactory/dvd-video-converter/) [![Best Video to MP3 Converter for Windows](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-2.webp) Best Video to MP3 Converter for Windows](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [![Convert WMV to MP4 Windows 10](https://www.videoconverterfactory.com/tips/imgs-self/best-ogg-to-mp3-converter/best-ogg-to-mp3-converter-slt-3.webp) Convert WMV to MP4 Windows 10](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![WonderFox DVD Ripper Pro](https://www.videoconverterfactory.com/tips/imgs-self/box-ripperpro-l.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Digitize All Your DVD Collections Fast and Easily 
 
@@ -274,15 +274,21 @@ Digitize All Your DVD Collections Fast and Easily
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-9-key-approaches-to-free-webinar-archiving/"><u>[New] 2024 Approved 9 Key Approaches to Free Webinar Archiving</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-proven-ways-to-enhance-your-home-nba-streams/"><u>[New] Proven Ways to Enhance Your Home NBA Streams</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-efficient-ways-to-archive-facetime-chats/"><u>[Updated] 2024 Approved Efficient Ways to Archive FaceTime Chats</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-innovations-to-enhance-your-short-video-experience/"><u>[Updated] Innovations to Enhance Your Short Video Experience</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/effortless-tutorials-master-the-art-of-saving-messages-and-clips-from-facebook-messenger/"><u>Effortless Tutorials: Master the Art of Saving Messages & Clips From Facebook Messenger</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-gps-location-on-apple-iphone-6s-easily-and-safely-drfone-by-drfone-virtual-ios/"><u>In 2024, How to Change GPS Location on Apple iPhone 6s Easily & Safely | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-detect-and-remove-spyware-on-vivo-y27s-drfone-by-drfone-virtual-android/"><u>In 2024, How to Detect and Remove Spyware on Vivo Y27s? | Dr.fone</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/seamless-incornporation-of-youtube-content-into-powerpoint-slides-how-to/"><u>Seamless Incornporation of YouTube Content Into PowerPoint Slides - How To</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/simple-guide-converting-your-dvds-to-high-quality-dolby-digital-and-dts-audio-formats/"><u>Simple Guide: Converting Your DVDs to High-Quality Dolby Digital and DTS Audio Formats</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/top-rated-platforms-for-effortlessly-downloading-videos-from-the-web/"><u>Top Rated Platforms for Effortlessly Downloading Videos From the Web</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-maximizing-visibility-post-facebook-update/"><u>[New] 2024 Approved Maximizing Visibility Post-Facebook Update</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-ensuring-visibility-fixing-missing-shorts-thumbnails-for-2024/"><u>[New] Ensuring Visibility Fixing Missing Shorts Thumbnails for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-exploring-next-gen-vector-software-for-designers/"><u>[Updated] In 2024, Exploring Next-Gen Vector Software for Designers</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-expert-tips-on-choosing-top-9-webcam-enhancement-tools/"><u>2024 Approved Expert Tips on Choosing Top 9 Webcam Enhancement Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/convert-your-media-with-ease-discover-digiartys-expert-dvd-and-video-transformation-solutions/"><u>Convert Your Media with Ease: Discover Digiarty's Expert DVD & Video Transformation Solutions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/das-beste-kostenlose-softwarevergleich-mit-den-beliebtesten-dvd-rippern-fur-windows-11/"><u>Das Beste Kostenlose Softwarevergleich Mit Den Beliebtesten DVD-Rippern Für Windows 11</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/descubre-como-activar-el-respaldo-de-dvd-en-tu-pc-o-mac-usando-handbrake-e-instalando-libdvdcss-para-windows-11macos-ventana/"><u>Descubre Cómo Activar El Respaldo De DVD en Tu PC O Mac Usando HandBrake E Instalando Libdvdcss Para Windows 11/MacOS Ventana</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/disponibilidad-inmediata-descargar-el-codificador-de-hardware-y-software-para-av1/"><u>Disponibilidad Inmediata: Descargar El Codificador De Hardware Y Software Para AV1</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/download-high-definition-video-compressor-tools-compatible-with-windows-and-macos-free-version-available/"><u>Download High-Definition Video Compressor Tools Compatible with Windows and macOS, Free Version Available!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/exploring-the-mp4-video-standard-insights-into-mpeg-4s-part-14-format/"><u>Exploring the MP4 Video Standard: Insights Into MPEG-4's Part 14 Format</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-latest-corsair-h80i-v2-driver-for-your-pc/"><u>Get the Latest Corsair H80i V2 Driver for Your PC</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/guide-for-transferring-dvd-captions-to-srt-files-using-windows-and-macos-systems/"><u>Guide for Transferring DVD Captions to SRT Files Using Windows & macOS Systems</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-to-get-the-dragon-scale-and-evolution-enabled-pokemon-on-tecno-spark-20-proplus-drfone-by-drfone-virtual-android/"><u>How to get the dragon scale and evolution-enabled pokemon On Tecno Spark 20 Pro+? | Dr.fone</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/how-to-pinpoint-the-perfect-tag-for-your-personalized-tiktok-stream/"><u>How to Pinpoint the Perfect Tag for Your Personalized TikTok Stream</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/improve-picture-quality-top-5-techniques-for-boosting-image-sharpness-2024-edition/"><u>Improve Picture Quality: Top 5 Techniques for Boosting Image Sharpness, 2024 Edition</u></a></li>
+<li><a href="https://fox-info.techidaily.com/in-2024-note-to-call-how-to-convert-tamil-songs-into-ringtones/"><u>In 2024, Note to Call How To Convert Tamil Songs Into Ringtones</u></a></li>
 </ul></div>
 
