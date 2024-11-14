@@ -1,7 +1,7 @@
 ---
 title: "Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology"
-date: 2024-09-19T19:08:52.972Z
-updated: 2024-09-25T21:26:39.133Z
+date: 2024-11-06T04:21:03.645Z
+updated: 2024-11-13T03:33:51.708Z
 tags:
   - product-reviews
 categories:
@@ -97,28 +97,15 @@ Expand
 
 [Amazon](https://www.amazon.com/Xtrfy-Mechanical-Keyboard-Swappable-Switches/dp/B0CTMZY7TX/ref=sr%5F1%5F3?crid=19YOL40WQLGKJ&dib=eyJ2IjoiMSJ9.Sy%5FFSJt40vqerbZFmwv5LmMlFvnH9w0fpztAICjRFQw.n41vgrDyU0LpZgB%5FZv0yWlg%5F2mV2LiiVhO-re9iehzc&dib%5Ftag=se&keywords=cherry%2Bxtrfy%2Bk5v2&qid=1713027908&sprefix=cherry%2Bxtrfy%2Bk5v2%2Caps%2C118&sr=8-3&th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002348&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fcherry-xtrfy-k5v2-review%2F&asc%5Fcampaign=Authority) [Cherry](https://cherryxtrfy.com/keyboards/k5v2-compact/) 
 
-<!-- affiliate ads begin -->
-<span id="1983588">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983588.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983588">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983588.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983588%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983588/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##  The 65% Keyboard: Small, but Mighty
 
 ![Angled view of the backlit Cherry K5V2 Keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/angled-view-of-the-backlit-cherry-k5v2-keyboard-1jpg_53543595886_o-2.jpg) 
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
@@ -133,22 +120,16 @@ Sergio Rodriguez / How-To Geek
 
  The keyboard also features pre-lubed, PCB-mounted stabilizers to ensure that the ABS keycaps respond reliably to your key presses, no matter how frantically you hit them. Beyond that, the XTRFY K5V2's keys are hot-swappable, meaning you can change them out for others. Also, as a sucker for lights, I have to point out that the per-key RGB lighting on this board is stellar.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  Sweet New Cherry Key Switches
 
 ![keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/keycaps-and-a-switch-removed-from-the-cherry-k5v2-keyboard-2jpg_53542723542_o-2.jpg) 
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -159,10 +140,10 @@ Sergio Rodriguez / How-To Geek
  Preferences vary, of course, but I feel confident saying that if you like Cherry Red switches, you'll be very happy with this new switch version.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  No Software? No Problem—Mostly
@@ -182,6 +163,13 @@ Sergio Rodriguez / How-To Geek
 ##  Should You Buy the Cherry XTRFY K5V2?
 
 ![The Cherry K5V2 keyboard with its box and accessories](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/the-cherry-k5v2-keyboard-with-its-box-and-accessories-2jpg_53542721052_o-2.jpg) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -270,21 +258,15 @@ Expand
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-skills.techidaily.com/new-leading-5-monitors-unleashing-full-spectrum-colors/"><u>[New] Leading 5 Monitors Unleashing Full Spectrum Colors</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/updated-bellylaugh-beats-top-choices-for-laughable-ringtone-downloads/"><u>[Updated] BellyLaugh Beats Top Choices for Laughable Ringtone Downloads</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-in-2024-no-root-audio-recording-on-android-devices-tutorial/"><u>[Updated] In 2024, No-Root Audio Recording on Android Devices [Tutorial]</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1-how-to-convert-mts-files-to-mp4-for-free-a-step-by-step-guide-for-windows-and-macos-users/"><u>1. How to Convert MTS Files to MP4 for Free: A Step-by-Step Guide for Windows & macOS Users</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1725288902560-iso/"><u>無料のISOマウントツールとして推薦！イメージファイルを簡単に利用可能</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/digiartycddvd-seo/"><u>Digiartyソフトウェア株式会社の定期刊行物特典CD・DVD提携 - SEO最適化タイトル</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1725286192527-dvd/"><u>DVDコピー保護を自由に解除するための『窓の杜』ガイド付き！</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/exploring-the-boundless-capabilities-of-ai-to-reshape-our-lives/"><u>Exploring the Boundless Capabilities of AI to Reshape Our Lives</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/how-to-clone-your-dvd-onto-iso-and-create-backup-using-winx-dvd-copy-professional/"><u>How to Clone Your DVD Onto ISO and Create Backup Using WinX DVD Copy Professional</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-pause-life360-location-sharing-for-oneplus-11r-drfone-by-drfone-virtual-android/"><u>How To Pause Life360 Location Sharing For OnePlus 11R | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/in-2024-insta-vids-dissecting-the-relevance-of-self-image-authenticity/"><u>In 2024, Insta Vids Dissecting the Relevance of Self-Image Authenticity</u></a></li>
-<li><a href="https://discover-hacks.techidaily.com/interpolacion-de-imagenes-avanzada-mediante-ia-mejorar-los-fps-y-transiciones-sin-rigidez-con-tecnicas-de-fotograma-a-fotograma/"><u>Interpolación De Imágenes Avanzada Mediante IA: Mejorar Los FPS Y Transiciones Sin Rigidez Con Técnicas De Fotograma a Fotograma</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/1726228004483-movavi-video-editor/"><u>Movavi Video Editor - ทีมประจำวัน สํานัยผลิตไฟดู</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/navigating-global-dvd-standards-enabling-playback-of-british-disc-media-beyond-its-home-zone/"><u>Navigating Global DVD Standards: Enabling Playback of British Disc Media Beyond Its Home Zone</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/navigating-through-the-biggest-apple-music-hiccups-on-windows-10-comprehensive-troubleshooting-guide/"><u>Navigating Through the Biggest Apple Music Hiccups on Windows 10 - Comprehensive Troubleshooting Guide</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/resolving-frame-rate-issues-in-windows-gaming-tips-and-tricks/"><u>Resolving Frame Rate Issues in Windows Gaming - Tips & Tricks</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-expert-tips-implement-borders-on-instagram-media/"><u>[New] In 2024, Expert Tips Implement Borders on Instagram Media</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-essential-tips-precise-video-trimming-on-vimeo-5-methods/"><u>[Updated] 2024 Approved Essential Tips Precise Video Trimming on Vimeo [5 Methods]</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/ai-innovation-duels-googles-gemini-vs-openais-chatgpt/"><u>AI Innovation Duels: Google's Gemini Vs. OpenAI’s ChatGPT</u></a></li>
+<li><a href="https://win11.techidaily.com/can-pressing-print-screen-start-snip-in-windows-11-block-it/"><u>Can Pressing Print Screen Start Snip in Windows 11? Block It</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/improving-corporate-performance-how-ai-and-advanced-automation-contribute-to-successful-outcomes/"><u>Improving Corporate Performance: How AI and Advanced Automation Contribute to Successful Outcomes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-efficiently-log-your-overwatch-battles/"><u>In 2024, Efficiently Log Your Overwatch Battles</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/intelligente-automatisierung-mit-dem-neu-eingefuhrten-globalen-abbyy-one-partner-programm-starkung-von-netzwerken/"><u>Intelligente Automatisierung Mit Dem Neu Eingeführten Globalen ABBYY One Partner Programm - Stärkung Von Netzwerken</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/limpact-de-lia-sur-le-devouement-au-travail-acces-simplifie-aux-donnees-contraires-documents/"><u>L'impact De L'IA Sur Le Dévouement Au Travail | Accès Simplifié Aux Données Contraires Documents</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/launch-of-version-2-enhanced-features-in-the-latest-abbyy-flexicapture-software-update/"><u>Launch of Version 2: Enhanced Features in the Latest ABBYY FlexiCapture Software Update</u></a></li>
+<li><a href="https://driver-error.techidaily.com/wudfrd-not-booting-device-event-id-219/"><u>WudfRd Not Booting, Device Event ID: 219</u></a></li>
 </ul></div>
 
