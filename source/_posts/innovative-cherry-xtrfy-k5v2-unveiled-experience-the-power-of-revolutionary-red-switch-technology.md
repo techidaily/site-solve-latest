@@ -1,7 +1,7 @@
 ---
 title: "Innovative Cherry XTRFY K5V2 Unveiled: Experience the Power of Revolutionary Red Switch Technology"
-date: 2024-11-06T04:21:03.645Z
-updated: 2024-11-13T03:33:51.708Z
+date: 2024-11-08T01:27:36.338Z
+updated: 2024-11-14T01:34:28.435Z
 tags:
   - product-reviews
 categories:
@@ -97,16 +97,16 @@ Expand
 
 [Amazon](https://www.amazon.com/Xtrfy-Mechanical-Keyboard-Swappable-Switches/dp/B0CTMZY7TX/ref=sr%5F1%5F3?crid=19YOL40WQLGKJ&dib=eyJ2IjoiMSJ9.Sy%5FFSJt40vqerbZFmwv5LmMlFvnH9w0fpztAICjRFQw.n41vgrDyU0LpZgB%5FZv0yWlg%5F2mV2LiiVhO-re9iehzc&dib%5Ftag=se&keywords=cherry%2Bxtrfy%2Bk5v2&qid=1713027908&sprefix=cherry%2Bxtrfy%2Bk5v2%2Caps%2C118&sr=8-3&th=1&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002348&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fcherry-xtrfy-k5v2-review%2F&asc%5Fcampaign=Authority) [Cherry](https://cherryxtrfy.com/keyboards/k5v2-compact/) 
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##  The 65% Keyboard: Small, but Mighty
 
 ![Angled view of the backlit Cherry K5V2 Keyboard](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/angled-view-of-the-backlit-cherry-k5v2-keyboard-1jpg_53543595886_o-2.jpg) 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Sergio Rodriguez / How-To Geek
 
@@ -121,10 +121,10 @@ Sergio Rodriguez / How-To Geek
  The keyboard also features pre-lubed, PCB-mounted stabilizers to ensure that the ABS keycaps respond reliably to your key presses, no matter how frantically you hit them. Beyond that, the XTRFY K5V2's keys are hot-swappable, meaning you can change them out for others. Also, as a sucker for lights, I have to point out that the per-key RGB lighting on this board is stellar.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036496/19272" target="_top" id="2036496">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036496" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036496/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ##  Sweet New Cherry Key Switches
@@ -138,13 +138,6 @@ Sergio Rodriguez / How-To Geek
  I love typing on the MX2A Red switches. Typing text, pounding the WASD keys—every keypress is fast and comes with a satisfying (but not loud) clack. The spacebar was a little louder than the other keys, but not annoying.
 
  Preferences vary, of course, but I feel confident saying that if you like Cherry Red switches, you'll be very happy with this new switch version.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ##  No Software? No Problem—Mostly
 
@@ -164,20 +157,27 @@ Sergio Rodriguez / How-To Geek
 
 ![The Cherry K5V2 keyboard with its box and accessories](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/wm/2024/04/the-cherry-k5v2-keyboard-with-its-box-and-accessories-2jpg_53542721052_o-2.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Sergio Rodriguez / How-To Geek
 
  The [Cherry XTRFY K5V2](http://www.amazon.com/Xtrfy-Mechanical-Keyboard-Swappable-Switches/dp/B0CTMZY7TX/ref=sr%5F1%5F3?crid=2M1QNB34S5TNV&dib=eyJ2IjoiMSJ9.Sy%5FFSJt40vqerbZFmwv5LmMlFvnH9w0fpztAICjRFQw.n41vgrDyU0LpZgB%5FZv0yWlg%5F2mV2LiiVhO-re9iehzc&dib%5Ftag=se&keywords=cherry+xtrfy+k5v2&qid=1712543144&sprefix=cherry+xt%2Caps%2C120&sr=8-3&tag=hotoge-20&ascsubtag=UUhtgUeUpU2002348&asc%5Frefurl=https%3A%2F%2Fwww.howtogeek.com%2Fcherry-xtrfy-k5v2-review%2F&asc%5Fcampaign=Authority) is a big win. Yes, the lack of software means you have to interpret various icons to change settings. And, at $139, it's pricier than, say, the [Keychron C3 Pro](https://some-tips.techidaily.com/updated-the-art-of-transferring-tunes-between-platforms/). But should the XTRFY K5V2 fit your budget, I'd jump on it. I love the sound and feel of the new keys, the layout, and the RGB lighting. I don't think a gamer can go wrong with this mechanical keyboard.
 
 ![Cherry XTRFY K5V2](https://static1.howtogeekimages.com/wordpress/wp-content/uploads/2024/03/amazoncherryxtrfyk5v2.jpg) 
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ![](https://static1.howtogeekimages.com/wordpresshttps://static0.howtogeekimages.com/wordpress/wp-content/uploads/2024/01/htg-rec-2024-2000-1.png) 
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 #####  Cherry XTRFY K5V2
 
@@ -258,15 +258,24 @@ Expand
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-expert-tips-implement-borders-on-instagram-media/"><u>[New] In 2024, Expert Tips Implement Borders on Instagram Media</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-essential-tips-precise-video-trimming-on-vimeo-5-methods/"><u>[Updated] 2024 Approved Essential Tips Precise Video Trimming on Vimeo [5 Methods]</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ai-innovation-duels-googles-gemini-vs-openais-chatgpt/"><u>AI Innovation Duels: Google's Gemini Vs. OpenAI’s ChatGPT</u></a></li>
-<li><a href="https://win11.techidaily.com/can-pressing-print-screen-start-snip-in-windows-11-block-it/"><u>Can Pressing Print Screen Start Snip in Windows 11? Block It</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/improving-corporate-performance-how-ai-and-advanced-automation-contribute-to-successful-outcomes/"><u>Improving Corporate Performance: How AI and Advanced Automation Contribute to Successful Outcomes</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/in-2024-efficiently-log-your-overwatch-battles/"><u>In 2024, Efficiently Log Your Overwatch Battles</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/intelligente-automatisierung-mit-dem-neu-eingefuhrten-globalen-abbyy-one-partner-programm-starkung-von-netzwerken/"><u>Intelligente Automatisierung Mit Dem Neu Eingeführten Globalen ABBYY One Partner Programm - Stärkung Von Netzwerken</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/limpact-de-lia-sur-le-devouement-au-travail-acces-simplifie-aux-donnees-contraires-documents/"><u>L'impact De L'IA Sur Le Dévouement Au Travail | Accès Simplifié Aux Données Contraires Documents</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/launch-of-version-2-enhanced-features-in-the-latest-abbyy-flexicapture-software-update/"><u>Launch of Version 2: Enhanced Features in the Latest ABBYY FlexiCapture Software Update</u></a></li>
-<li><a href="https://driver-error.techidaily.com/wudfrd-not-booting-device-event-id-219/"><u>WudfRd Not Booting, Device Event ID: 219</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-mirror-your-gameplay-today/"><u>[Updated] 2024 Approved Mirror Your Gameplay Today</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-achieving-caption-excellence-an-overview-of-premium-internet-tools/"><u>[Updated] Achieving Caption Excellence An Overview of Premium Internet Tools</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-mmo-galaxy-the-finest-10-free-online-roleplayers/"><u>[Updated] In 2024, MMO Galaxy The Finest 10 Free Online Roleplayers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-the-follow-forward-guide-accumulating-1000-likesmonth-on-ig-for-2024/"><u>[Updated] The Follow-Forward Guide Accumulating 1,000 Likes/Month on IG for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-enhance-your-sites-analytics-and-conversions/"><u>Cookiebot-Enabled: Enhance Your Site's Analytics and Conversions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enabled-enhance-your-sites-user-experience-with-advanced-tracking-tools/"><u>Cookiebot-Enabled: Enhance Your Site's User Experience with Advanced Tracking Tools</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-sites-the-secret-behind-improved-user-engagement/"><u>Cookiebot-Enhanced Sites: The Secret Behind Improved User Engagement</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-seamless-user-experience-and-optimized-conversions/"><u>Cookiebot-Enhanced: Seamless User Experience & Optimized Conversions</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/cookiebot-the-key-ingredient-in-advanced-web-personalization/"><u>Cookiebot: The Key Ingredient in Advanced Web Personalization</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/customized-web-engagement-with-cookiebot-technology-integration/"><u>Customized Web Engagement with Cookiebot Technology Integration</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/die-kraft-des-texterkennens-mit-abbyy-einblicke-in-kundenerfahrungen-und-vorteile/"><u>Die Kraft Des Texterkennens Mit ABBYY: Einblicke in Kundenerfahrungen Und Vorteile</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/discover-improved-efficiency-in-managing-documents-with-abbyy-finereader-ebersichtlich/"><u>Discover Improved Efficiency in Managing Documents with ABBYY FineReader Ebersichtlich</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/here-are-some-pro-tips-for-pokemon-go-pvp-battles-on-apple-iphone-15-drfone-by-drfone-virtual-ios/"><u>Here are Some Pro Tips for Pokemon Go PvP Battles On Apple iPhone 15 | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-vivo-y27-4g-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Vivo Y27 4G online without jailbreak</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/al-video-intros-selecting-the-top-16-to-increase-views-for-2024/"><u>Optimal Video Intros Selecting the Top 16 to Increase Views for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/syncopated-shots-picking-the-best-music-for-social-media-for-2024/"><u>Syncopated Shots Picking the Best Music for Social Media for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/unlocking-the-truth-about-assassins-creed-valhalla-delay-now-explained/"><u>Unlocking The Truth About Assassin's Creed Valhalla Delay – Now Explained</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-2024-approved-virtualdub-for-mac/"><u>Updated 2024 Approved VirtualDub for Mac</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/dx-abbyy/"><u>デジタル変革で財務業務を強化:会計支払いにおけるDXのコツとは? | 知られざるABBYYの洞察</u></a></li>
 </ul></div>
 

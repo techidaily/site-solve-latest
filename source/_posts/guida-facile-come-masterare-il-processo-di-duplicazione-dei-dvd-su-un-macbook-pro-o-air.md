@@ -1,7 +1,7 @@
 ---
 title: "Guida Facile: Come Masterare Il Processo Di Duplicazione Dei DVD Su Un MacBook Pro O Air"
-date: 2024-11-07T16:25:04.335Z
-updated: 2024-11-13T03:15:40.189Z
+date: 2024-11-11T22:53:04.530Z
+updated: 2024-11-13T21:38:27.278Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/904e4358c32651c8870cd752598cbad0b1afa3205d185e4b265bf0a0d105bd32.jpg
@@ -31,6 +31,13 @@ _Come riprodurre DVD su Mac? Perché il computer Mac non riesce a riprodurre i D
 
 Poiché Apple ha eliminato l'unità disco dai suoi Mac più recenti per renderli più sottili, molti utenti chiedono come riprodurre DVD su Mac che non hanno un'unità disco. Per aiutare gli utenti Mac e coloro che hanno un'unità incorporata ma riscontrano ancora problemi con DVD che non vengono riprodotti su Mac, forniamo 4 guide complete per aiutarti a guardare film in DVD e programmi TV su Mac senza errori.
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Come riprodurre DVD su Mac?
 
 * [Metodo 1\. Usa MacX DVD Ripper Pro - Disponibile per qualsiasi DVD](https://tools.techidaily.com/macxdvd/products/)
@@ -42,13 +49,6 @@ Poiché Apple ha eliminato l'unità disco dai suoi Mac più recenti per renderli
 _Poiché nel tuo Mac non è presente un'unità disco incorporata, puoi ottenere un'unità DVD esterna per la riproduzione di DVD su Mac. Apple fornisce un SuperDrive USB a £ 65 che funziona su iMac, Mac mini, MacBook Pro con Retina Display o MacBook Air. Con esso, devi solo inserire il DVD nel SuperDrive, l'app DVD Player dovrebbe aprirsi automaticamente e iniziare a eseguire il disco._
 
 _Se il disco rigido DVD del Mac non funziona per te, ci sono molte altre unità DVD disponibili a un prezzo economico. Quindi puoi guardare il DVD con un lettore DVD per Mac normalmente._
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037355/7443" target="_top" id="2037355">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037355" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037355/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Metodo 1\. Come riprodurre DVD su Mac con MacX DVD Ripper Pro?
 
@@ -72,23 +72,9 @@ Ecco i semplici passaggi per convertire DVD in MP4 con MacX DVD Ripper Pro:
 
 ![Rip DVD to MP4 Using MacX DVD Ripper Pro](https://www.macxdvd.com/tutorial-it/../seo-img/mac-how-to/dvd-mp4-free.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 MacX DVD Ripper Pro supporta anche backup di DVD e compressione di DVD in un file compatto perfettamente dimensionato per Mac SSD, HDD, USB o NAS. Riduce notevolmente le dimensioni del file DVD, in particolare il Blu-ray per liberare spazio di archiviazione del tuo Mac, con una perdita di qualità video in uscita trascurabile. Se preferisci goderti i film in DVD su un dispositivo portatile, come iPhone, iPad, Android, ecc., Può anche aiutarti a farlo convertendo i DVD su questi dispositivi.
 
 ![note icon](https://www.macxdvd.com/tutorial-it/../image-style/new-seo/icon0.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 _lo sviluppatore di DVD ripper sostiene solo l'utilizzo di questo ripper DVD per Mac autonomo per estrarre e convertire DVD per uso personale legale, invece della riproduzione o distribuzione illegale di contenuti protetti da copyright. Rispettare le leggi locali sul copyright dei DVD prima di farlo. NON danneggiare i diritti e gli interessi legali degli altri._
 
@@ -114,13 +100,6 @@ Inserisci un disco DVD nell'unità DVD e l'app Lettore DVD su Mac avvia la ripro
 
 ![Open DVD Player App on Mac](https://www.macxdvd.com/tutorial-it/../mac-dvd-video-converter-how-to/article-image/open-dvd-player-app-on-mac.jpg) 
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 1\. Puoi anche fare clic sull'icona Spotlight nell'angolo in alto a destra dello schermo del tuo Mac e cercare l'app Lettore DVD. Apparirà nell'angolo in alto a sinistra. Facendo doppio clic sull'icona, verrà avviata l'app DVD Player.
 
 2\. Questo metodo non è disponibile per copiare e riprodurre cartelle video da dischi DVD protetti da copyright. Il "lettore DVD" inoltre non può riprodurre altri supporti, come i dischi Blu-ray, o riconoscere il contenuto video registrato su alcuni tipi di dischi DVD-RW.
@@ -145,25 +124,31 @@ Tuttavia, in questo modo sono necessari due Mac collegati in rete. Quindi, forse
 
 ![Play DVD with Remote Disc](https://www.macxdvd.com/tutorial-it/../mac-dvd-video-converter-how-to/article-image/remote-disc.png) 
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Domande frequenti
+
+<!-- affiliate ads begin -->
+<span id="1912746">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Perché non riesco a riprodurre un DVD sul mio Mac?
 
 La causa principale per cui il DVD non viene riprodotto su Mac è che Apple ha abbandonato l'unità DVD sui suoi Mac, quindi è impossibile inserire un disco DVD e aprirlo. Oltre a ciò, molti altri fattori porteranno anche al problema del mancato gioco. Ad esempio, la presenza di sporco e polvere sul disco causa l'espulsione dei DVD da parte del Mac. Il lettore DVD del Mac non può riprodurre DVD dopo l'aggiornamento del sistema operativo Mac o quando il disco DVD è danneggiato. E il tuo lettore DVD non può riprodurre DVD regionali.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Come faccio a visualizzare un DVD sul mio Mac?
 
@@ -177,31 +162,38 @@ Articoli Relativi
 
 ![](https://www.macxdvd.com/tutorial-it/../image-style/new-seo/pic7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [Come cambiare la regione del DVD su MacBook iMac?](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-it/../image-style/new-seo/pic6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/994842/11832" target="_top" id="994842">
+  <img src="//a.impactradius-go.com/display-ad/11832-994842" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/994842/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [come comprimere i file MP4 senza alcuna perdita di qualità](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-it/../image-style/new-seo/pic5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118306/7443" target="_top" id="2118306">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118306" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118306/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 [I 10 migliori downloader di YouTube per Mac per scaricare da YouTube](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/tutorial-it/../image-style/new-seo/pic4.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006960/19272" target="_top" id="2006960">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 [\[2021\] I 5 migliori lettori WMV per Mac per riprodurre file WMV su Mac](https://tools.techidaily.com/macxdvd/products/) 
 
@@ -223,11 +215,25 @@ MacXDVD Software è un fornitore leader per il multimedia, fornendo soluzioni pe
 * [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 * [MacX MediaTrans](https://tools.techidaily.com/macxdvd/products/)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Support
 
 * [FAQ >>](https://tools.techidaily.com/macxdvd/products/)
 * [Guida >>](https://tools.techidaily.com/macxdvd/products/)
 * [Risorse >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Azienda
 
@@ -256,22 +262,24 @@ Il software di Digiarty non è sviluppato da o affiliato ad Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-discover-the-10-best-cookie-places-in-town-with-unbeatable-taste/"><u>[Updated] 2024 Approved Discover the 10 Best Cookie Places in Town with Unbeatable Taste</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/empowering-websites-with-cookiebot-technology-the-path-to-successful-seo-and-personalization/"><u>Empowering Websites with Cookiebot Technology: The Path to Successful SEO and Personalization</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhance-online-tracking-and-analytics-using-the-advanced-cookiebot-solutions/"><u>Enhance Online Tracking and Analytics Using the Advanced Cookiebot Solutions</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhanced-conversion-rates-with-our-advanced-cookiebot-technology/"><u>Enhanced Conversion Rates with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhanced-customer-engagement-through-advanced-cookie-tracking-solutions/"><u>Enhanced Customer Engagement Through Advanced Cookie Tracking Solutions</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhanced-site-performance-with-automated-bots-the-power-of-cookiebot/"><u>Enhanced Site Performance with Automated Bots: The Power of CookieBot</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhanced-traffic-capture-with-cookiebot-technology/"><u>Enhanced Traffic Capture with Cookiebot Technology</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/enhanced-user-experience-with-advanced-cookiebot-tracking-technology/"><u>Enhanced User Experience with Advanced Cookiebot Tracking Technology</u></a></li>
-<li><a href="https://win-top.techidaily.com/evolving-landscape-of-digital-mailing-list-management-1999-2012-by-massmail-solutions/"><u>Evolving Landscape of Digital Mailing List Management (1999-2012) by MassMail Solutions</u></a></li>
-<li><a href="https://howto.techidaily.com/fixing-persistent-pandora-crashes-on-vivo-x100-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixing Persistent Pandora Crashes on Vivo X100 Pro | Dr.fone</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/1723964487791-get-the-pro-level-logitech-g502-hero-at-an-amazing-price-only-35-experience-ultra-high-definition-controls-and-25k-dpi-sensitivity/"><u>Get the Pro-Level Logitech G502 Hero at an Amazing Price - Only $35! Experience Ultra-High Definition Controls and 25K DPI Sensitivity.</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/harness-the-power-of-cookiebot-elevate-your-sites-seo-game/"><u>Harness the Power of Cookiebot: Elevate Your Site's SEO Game</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/how-to-get-the-latest-hp-network-card-drivers-for-pcs-running-windows-1078/"><u>How to Get the Latest HP Network Card Drivers for PCs Running Windows 10/7/8</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/1716465099560-how-to-make-a-youtube-subscribe-link-easy/"><u>How to Make a YouTube Subscribe Link - Easy!</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/immediate-correction-of-loopy-and-skewed-displays/"><u>Immediate Correction of Loopy and Skewed Displays</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-top-10-free-video-stabilization-tools-online-a-comprehensive-review-for-2024/"><u>New Top 10 Free Video Stabilization Tools Online A Comprehensive Review for 2024</u></a></li>
-<li><a href="https://techidaily.com/solutions-to-restore-deleted-files-from-motorola-edgeplus-2023-by-fonelab-android-recover-data/"><u>Solutions to restore deleted files from Motorola Edge+ (2023)</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-2024-approved-the-essential-handbook-for-instagram-reels/"><u>[Updated] 2024 Approved The Essential Handbook for Instagram Reels</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-fastest-growing-youtube-spots-top-8-for-rapid-expansion/"><u>[Updated] In 2024, Fastest-Growing YouTube Spots Top 8 for Rapid Expansion</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-quick-guide-automating-mac-screenshot-via-shortcuts/"><u>[Updated] In 2024, Quick Guide Automating Mac Screenshot via Shortcuts</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/advance-repair-for-bad-and-corrupt-video-files-of-realme-gt-5-240w-by-stellar-video-repair-mobile-video-repair/"><u>Advance Repair for Bad and Corrupt Video Files of Realme GT 5 (240W)</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/best-mac-compatible-wmv-video-player-software-top-5-picks/"><u>Best Mac-Compatible WMV Video Player Software: Top 5 Picks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-video-repair-tool-to-fix-and-repair-corrupt-mp4-mov-avi-video-files-of-poco-x5-by-stellar-video-repair-mobile-video-repair/"><u>Best Video Repair tool to Fix and Repair Corrupt MP4,MOV,AVI video files of Poco X5</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/custom-templatesn-indicates-a-new-line-for-readability-create-your-own-unique-project-design-using-the-template-editor-available-under-file-)-new-template-s29/"><u>Custom Templates( n Indicates a New Line for Readability): Create Your Own Unique Project Design Using the Template Editor Available Under File > New Template. Save as a .macxdvd File to Use in Future Projects.</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-steps-for-creating-subtitles-in-mp4-videos-while-preserving-quality/"><u>Easy Steps for Creating Subtitles in MP4 Videos While Preserving Quality</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/easy-steps-to-transform-your-mov-files-into-mp3-format-on-a-mac/"><u>Easy Steps to Transform Your MOV Files Into MP3 Format on a Mac</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/harvesting-hours-of-hilarity-friends-farming-favorites/"><u>Harvesting Hours of Hilarity Friends' Farming Favorites</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-honor-70-lite-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Honor 70 Lite 5G</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-simple-routines-for-saving-instagram-stories-efficiently/"><u>In 2024, Simple Routines for Saving Instagram Stories Efficiently</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/offline-accessible-hilarious-anime-downloads-for-ios-devices-save-and-watch-anywhere/"><u>Offline Accessible Hilarious Anime Downloads for iOS Devices - Save and Watch Anywhere!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/profi-iphone-tone-gestalten-erfahren-sie-uber-den-fuhrenden-klingelton-generator-und-erstellen-ihren-personlichen-signaturklang/"><u>Profi-Iphone-Töne Gestalten: Erfahren Sie Über Den Führenden Klingelton-Generator Und Erstellen Ihren Persönlichen Signaturklang!</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/secure-and-fast-internet-with-new-gigabyte-ethernet-driver-download-now/"><u>Secure and Fast Internet with New Gigabyte Ethernet Driver - Download Now!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/solving-your-facebook-video-troubles-immediate-fixes-for-non-loading-and-crashing-videos/"><u>Solving Your Facebook Video Troubles: Immediate Fixes for Non-Loading and Crashing Videos</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/step-by-step-guide-adding-captionssubtitles-to-videos-in-various-formats-mp4-avi-mkv-flv/"><u>Step-by-Step Guide: Adding Captions/Subtitles to Videos in Various Formats (MP4, AVI, MKV, FLV)</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-vivo-x100-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Vivo X100 Phone Network-Ready</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/windowstsutaya/"><u>マックとWindowsのどちらでも対応！レンタル映像のコピー・ダビングガイド：TSUTAYA、ゲオ向けトリック!</u></a></li>
 </ul></div>
 

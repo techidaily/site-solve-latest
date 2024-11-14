@@ -1,7 +1,7 @@
 ---
 title: Simple Steps to Master Video Cropping with QuickTime on macOS
-date: 2024-11-10T04:32:47.457Z
-updated: 2024-11-12T21:13:24.771Z
+date: 2024-11-07T23:20:59.255Z
+updated: 2024-11-13T16:43:31.074Z
 categories:
   - macxdvd
 thumbnail: https://thmb.techidaily.com/4114f7cfe0acd398f6e6dc6c01ce0be957bdf6a2654636b72d1c325e241fdeaf.png
@@ -34,24 +34,10 @@ _Summary: follow this guide to click Crop button on QuickTime Pro, not QuickTime
 
 Stay here and spend roughly 3 minutes here reading the complete guide on using QuickTime Pro to crop/resize video on Mac if you're a loyal fan to QT and have already updated to Pro version. Plus, more simple solutions are also shared here as a bonus to crop video frames with no charge (esp. friendly to budget-minded users).
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
-  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Table of Contents 
 
 * [Part 1\. How to Crop Video in QuickTime Pro on Mac](https://tools.techidaily.com/macxdvd/products/)
 * [Part 2\. How to Crop Video Dimensions on Mac Free of Charge](https://tools.techidaily.com/macxdvd/products/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075482/7443" target="_top" id="2075482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 1\. How to Crop Video in QuickTime Pro on Mac 
 
@@ -87,6 +73,13 @@ Please note that only the selected area of your video image can show up after th
 
 If you're bugdet-minded and sick of the above troublesome procedure, there are more simple ways for you to go. 
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
+  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### [MacX Video Converter Pro](https://tools.techidaily.com/macxdvd/products/)
 
 * Free crop any videos, inclu. QuickTime video, 4K camcorder AVCHD, YouTube video, MP4, MKV, AVI, FLV, WebM...
@@ -96,6 +89,13 @@ If you're bugdet-minded and sick of the above troublesome procedure, there are m
 * Convert and compress video to MP4, H.264, HEVC, MOV, 3GP, AVI, FLV, iPhone iPad Android with 420+ profiles.
 
 [Download for Mac](https://tools.techidaily.com/macxdvd/products/) [Download for PC](https://tools.techidaily.com/macxdvd/products/) 
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902278/19272" target="_top" id="1902278">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902278/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Crop A Video (to Square) on Mac Easy as Pie
 
@@ -109,18 +109,18 @@ First of all, free download this video cropper software on your MacBook or iMac.
 
 ![Crop videos on macos](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../mac-video-converter-pro/step-images/edit-crop-700.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** there are built-in crop presets to automatically crop the letterbox, remove the black bars off of a recording, keep original aspect ratio, or crop video Mac from [4:3 or 16:9](https://tools.techidaily.com/macxdvd/products/), 1:1 etc to fit different displays. 
 
 **Step 3:** Export the cropped video to desirable formats. This depends on how you want to use with the output video. Whether you want to play the video on iPhone, iPad, Samsung, Huawei, other mobiles, upload to social sites, save in cloud services, or stream to media servers, you can find a preset here. If you don't want to bother, MP4 is recommended. 
 
 Then click Run to export video clip at 5x faster speed guaranteed (GPU hardware acceleration tech).
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Clideo
 
@@ -130,29 +130,22 @@ Then click Run to export video clip at 5x faster speed guaranteed (GPU hardware 
 
 ![Crop videos on macos](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/load-video-to-clideo.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** the online video resizer tool has strict limits on input file size. You can't successfully import video to Clideo unless your video file is less than 100MB. Or you've to upgrade to Premium version for larger-sized [(YouTube) video cropping](https://tools.techidaily.com/macxdvd/products/).
 
 **Step 2:** Crop your video frame online with Clideo. Move the marquee box to get what you want, choose the preset aspect ratio 1:1, 16:9, 9:16 or 5:4, or manually insert the exact number. 
 
 ![Crop videos on Clideo](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/crop-video-clideo.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Step 3:** Choose the output file format at the lower left corner of the webpage. Almost all the modern formats are supported here, like MP4, MKV, AVI, FLV, M2TS, etc. Afterwards, tap Export button at the lower right corner of the webpage to export your cropped video clip. 
 
 ![Choose output format](https://www.macxdvd.com/mac-dvd-video-converter-how-to/article-image/clideo-format.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![note icon](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/icon0.png)
 
@@ -168,15 +161,22 @@ Related Articles
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094428/7443" target="_top" id="2094428">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094428" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094428/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 [How to Trim Video on Mac without Re-encoding](https://tools.techidaily.com/macxdvd/products/) 
 
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic5.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049387/7443" target="_top" id="2049387">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049387" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049387/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [How to Resize (QuickTime) Video on Mac](https://tools.techidaily.com/macxdvd/products/) 
@@ -192,22 +192,15 @@ Related Articles
 ![](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../image-style/new-seo/pic2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144309/7443" target="_top" id="2144309">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144309" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144309/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [QuickTime Won't Play MOV Video Footage? Fix it Now!](https://tools.techidaily.com/macxdvd/products/) 
 
 ![Digiarty Software](https://www.macxdvd.com/mac-dvd-video-converter-how-to/../icon/logo.png) 
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123749/7443" target="_top" id="2123749">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123749" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123749/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia software applications for worldwide users since its establishment in 2006.
 
@@ -224,6 +217,13 @@ Digiarty Software, Inc. (MacXDVD) is a leader in delivering stable multimedia so
 * [Data Transfer >>](https://tools.techidaily.com/macxdvd/products/)
 * [Online Video >>](https://tools.techidaily.com/macxdvd/products/)
 * [Hot Topics >>](https://tools.techidaily.com/macxdvd/products/)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Company
 
@@ -255,18 +255,21 @@ Digiarty Software is not developed by or affiliated with Apple Inc.
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-evasion-of-ennui-comical-cells-and-chuckles-in-facebooks-boundaries/"><u>[New] Evasion of Ennui Comical Cells and Chuckles in Facebook's Boundaries</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-analytics-elevate-your-digital-strategy/"><u>Cookiebot-Driven Analytics: Elevate Your Digital Strategy</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-driven-solutions-boost-your-sites-performance/"><u>Cookiebot-Driven Solutions: Boost Your Site's Performance</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-enhanced-personalization-tailor-your-user-experience/"><u>Cookiebot-Enhanced Personalization: Tailor Your User Experience</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-enhancing-conversion-rates-through-smart-cookies-solutions/"><u>Cookiebot: Enhancing Conversion Rates Through Smart Cookies Solutions</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-streamlining-data-compliance-and-personalization-across-the-web/"><u>Cookiebot: Streamlining Data Compliance & Personalization Across the Web</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/cookiebot-the-key-ingredient-for-superior-web-traffic-insights-and-seo-success/"><u>Cookiebot: The Key Ingredient for Superior Web Traffic Insights and SEO Success</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-is-fake-gps-location-spoofer-a-good-choice-on-tecno-pova-6-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Is Fake GPS Location Spoofer a Good Choice On Tecno Pova 6 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-a58-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo A58 4G | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-unova-stone-pokemon-go-evolution-list-and-how-catch-them-for-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Unova Stone Pokémon Go Evolution List and How Catch Them For Infinix Note 30 Pro | Dr.fone</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/smooth-file-migration-to-computer-5-proven-techniques/"><u>Smooth File Migration to Computer – 5 Proven Techniques</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-tecno-pop-8-by-drfone-android/"><u>Universal Unlock Pattern for Tecno Pop 8</u></a></li>
-<li><a href="https://fox-links.techidaily.com/unlock-the-secrets-of-effortless-editing-for-windows-11-videos/"><u>Unlock the Secrets of Effortless Editing for Windows 11 Videos</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-art-of-virtual-visualization-in-digital-streaming-platforms/"><u>2024 Approved The Art of Virtual Visualization in Digital Streaming Platforms</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/elevating-your-gameplay-experience-a-critical-analysis-of-fifa-esports-champion-fifa-19/"><u>Elevating Your Gameplay Experience: A Critical Analysis of FIFA eSports Champion, FIFA 19</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/fix-the-faulty-escape-functionality-in-your-windows-environment/"><u>Fix the Faulty Escape Functionality in Your Windows Environment</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/in-2024-webcam-wonders-your-macbook-video-journey/"><u>In 2024, Webcam Wonders Your MacBook Video Journey</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/maximizing-profits-with-effective-referral-management-turning-patient-referrals-into-a-reliable-source-of-revenue/"><u>Maximizing Profits with Effective Referral Management: Turning Patient Referrals Into a Reliable Source of Revenue</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/mobile-optimierung-mcdows-erweitert-mit-abbyy-ocr/"><u>Mobile-Optimierung: McDows Erweitert Mit ABBYY OCR</u></a></li>
+<li><a href="https://network-issues.techidaily.com/never-ending-wi-fi-troubleshooting/"><u>Never-Ending Wi-Fi Troubleshooting</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimieren-sie-ihren-geschaftlichen-erfolg-mit-integrierten-uberwachungssystemen-und-reporting-losungen-von-abbyy-flexicapture/"><u>Optimieren Sie Ihren Geschäftlichen Erfolg Mit Integrierten Überwachungssystemen Und Reporting-Lösungen Von ABBYY FlexiCapture</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/optimierte-kundenkommunikation-im-aussenhandel-durch-die-clients-guide-app-mit-integrierter-abbey-visitenkarte-erfassung/"><u>Optimierte Kundenkommunikation Im Außenhandel Durch Die Clients-Guide App Mit Integrierter ABBEY Visitenkarte Erfassung</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/phasing-out-how-netflix-leaves-behind-certain-vintage-televisions/"><u>Phasing Out: How Netflix Leaves Behind Certain Vintage Televisions</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/professional-screen-capture-techniques-orderly-tutorials/"><u>Professional Screen Capture Techniques - Orderly Tutorials</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/seamlessly-integrated-with-cookiebot-technology-your-key-to-advanced-web-analytics/"><u>Seamlessly Integrated with Cookiebot Technology - Your Key to Advanced Web Analytics</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-battle-of-uniqueness-vs-commonality-how-to-captivate-millennials-interest-in-banking-financial-services-and-more-thought-leadership-by-abbyy/"><u>The Battle of Uniqueness Vs. Commonality: How to Captivate Millennials' Interest in Banking, Financial Services & More | Thought Leadership by ABBYY</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/the-dilemma-decoded-unraveling-legal-constraints-in-ai-advancements-perspectives-from-abbyy-blog/"><u>The Dilemma Decoded: Unraveling Legal Constraints in AI Advancements - Perspectives From ABBYY Blog</u></a></li>
+<li><a href="https://blog-min.techidaily.com/ultimate-guide-techniques-to-enhance-video-clarity-and-quality/"><u>Ultimate Guide: Techniques to Enhance Video Clarity and Quality</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/virtual-vigilance-securing-your-cyber-space-while-connecting-online-for-2024/"><u>Virtual Vigilance Securing Your Cyber Space While Connecting Online for 2024</u></a></li>
 </ul></div>
 
