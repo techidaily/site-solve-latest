@@ -1,7 +1,7 @@
 ---
 title: "Windows Tutorial: How to Assemble Your Own Video Collage"
-date: 2024-11-16T08:14:42.069Z
-updated: 2024-11-23T10:40:20.615Z
+date: 2024-11-25T18:20:14.828Z
+updated: 2024-12-01T19:05:03.683Z
 categories:
   - WonderFox
 thumbnail: https://thmb.techidaily.com/a15aaf86d9e6f286629da1a62d56aaff3df86baa99afaf09eec0439a28bfe3f5.jpg
@@ -38,11 +38,23 @@ Add background music or custom audio
 
 Let's see how to use Microsoft Photos to edit videos on Windows 10.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Step 1\. Import the Video
 
 Click the "Start" button and scroll down to find and open the "**Video Editor**". Click "**New video project**" > name the video > press the "**\+ Add**" button to select a video to import. Drag the video from the "**Project library**" to the editing workplace.
 
 ![Open Video Editor](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-12.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Step 2\. Edit the Video as You Wish
 
@@ -57,11 +69,7 @@ For more video editing functions, you just need to press the related icon to ope
 ![Edit Videos on Windows 10](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-13.webp) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 3\. Export Edited Video
@@ -69,10 +77,6 @@ For more video editing functions, you just need to press the related icon to ope
 Once finished editing, you can click "**Finish video**", choose a video quality, and click "**Export**" to export the edited video.
 
 ![Export Video](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-14.webp) 
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 However, the Microsoft Photos app only supports a few video formats and often crashes when processing large videos. So I'm here to introduce a third-party free video editing tool for Windows 10 and 11\. It is powerful and user-friendly and allows you to easily edit videos with simple clicks. The next part will show you how to edit videos on Windows 10 for free. Just read on!
 
@@ -101,7 +105,7 @@ Launch _**Free HD Video Converter Factory**_ after installing it on your PC. Ope
 ![How to Edit Videos on Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-1.webp) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Step 2: Edit Videos with Different Tools
@@ -113,6 +117,10 @@ _**#1\. Merge the Videos**_
 To [merge videos into one file](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/), you first need to import at least 2 or more video files into the program. Click the **Merge** button on the top menu bar and you will see the videos under the **Video List**. Select the videos and click the **middle Merge** button to save the videos in **Pack 1**. You can adjust the video order in the video pack. You can also repeat the step to create multiple packs. Finally, click the **bottom Merge** button to save the changes.
 
 ![How to Edit Videos on Laptop Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-2.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/AcAYRX0cwwA?si=DxqWU39vqksZbe1s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Also See:** [Free Video Merger without Watermark](https://tools.techidaily.com/videoconverterfactory/video-watermark/) | [Join Videos without Re-encoding](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
@@ -142,25 +150,21 @@ Hit on the **Magic Wand** icon to open the **Effect** window and [add effects to
 
 ![How to Edit Videos on Windows 10 for Free](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-6.webp) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _**#6\. Add Watermark to Video**_
 
 Click the **Stamper** icon to bring up the **Watermark** window. Here you can type in the text to [add text watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) and adjust the text font, size, etc. You can also [add the image watermark](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) from the preset image or your local drive and adjust the shadow, opacity, and location of the added watermark. Then press **OK** to go back.
 
 ![How to Edit Videos on Laptop Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-7.webp) 
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 _**#7\. Edit the Video Metadata**_
 
 Click the last icon on the toolbar to expand the **Metadata** window. Here you can [customize the video metadata](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/), including file name, artist, genre, and description. Then click **OK** to save the step.
 
 ![How to Edit a Video on Windows 10/11](https://www.videoconverterfactory.com/tips/imgs-self/how-to-edit-videos-on-windows-10/how-to-edit-videos-on-windows-10-8.webp) 
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 _**#8\. Other Practical features**_
 
@@ -189,7 +193,7 @@ Apart from the video editing and conversion features, Free HD Video Converter al
 [Free Download Compatible with Windows 11/10/8.1/8/7/... 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) [Free Download Compatible with Windows 11/10/8.1/8/7/... 100% Clean & Safe](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Final Words...
@@ -197,7 +201,7 @@ Apart from the video editing and conversion features, Free HD Video Converter al
 Above is all I want to share with you about how to edit videos on Windows 10 for free. Despite the Photos and some online video editors being capable of video editing on Windows 10/11, they also have some drawbacks like format restrictions, usually crashes, limited video size and length, etc. Therefore, **Free HD Video Converter Factory** is definitely the best choice to edit videos on Windows. Just [**get**](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)[**get**](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/) it to edit your videos free, handily, and effortlessly. Thanks for reading!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## FAQs about Windows 10 Built-in Video Editor
@@ -212,10 +216,6 @@ Actually, Windows Media Player doesn't come with any video editing features. But
 
 See how to trim video with Windows Media Player: [How to Cut Video in Windows Media Player](https://tools.techidaily.com/videoconverterfactory/hd-video-converter/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Rxyki8-Y630?si=dHLkIxG59zdlZeN0&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. How do I crop a video in Windows 10?
 
 You can click the three-dot icon in the Video Editor to resize the video aspect ratio to crop video. If you want to freely select the crop region, try WonderFox Free HD Video Converter Factory. It allows you to select any part of the video to crop.
@@ -229,7 +229,7 @@ How to Edit DVD Videos on Windows PC?
 ![WonderFox DVD Ripper Pro](https://www.videoconverterfactory.com/tips/img-autofit/single-ripperpro.png) 
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **WonderFox DVD Ripper Pro**
@@ -259,19 +259,20 @@ _\* Please do not use the DVD ripper to rip any copy-protected DVDs for commerci
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-android-no-fee-communication-tools-ranked-best-for-2024/"><u>[New] Android No-Fee Communication Tools Ranked Best for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-closer-inspection-pro-tips-for-pixelated-play/"><u>[New] In 2024, Closer Inspection Pro Tips for Pixelated Play</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-2024-approved-leveraging-wirecast-technology-for-dynamic-youtube-live-experiences/"><u>[Updated] 2024 Approved Leveraging WireCast Technology for Dynamic Youtube Live Experiences</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-spectral-synchronization-kit-for-2024/"><u>[Updated] Spectral Synchronization Kit for 2024</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/1725288630891-winxvideo-ai/"><u>利用 Winxvideo AI 提升影片质量，获取完美视频体验</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/5oplusq5y2h5zob54mm6io96yep77ya5aqs6auu5oqa6kgt6iih5oiq5yqf5qgi5l6l/"><u>提升品牌能量：媒體技術與成功案例</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/guida-rapida-alla-masterizzazione-e-conservazione-di-dvd-con-sistemi-windows-and-macos/"><u>Guida Rapida Alla Masterizzazione E Conservazione Di DVD Con Sistemi Windows & macOS</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-upgrade-iphone-14-to-the-latest-ios-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Upgrade iPhone 14 to the Latest iOS Version? | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/important-8-gpt-advice-for-enhancing-concentration-in-a-digital-era/"><u>Important 8 GPT Advice for Enhancing Concentration in a Digital Era</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/maximize-your-wi-fi-experience-with-synology-rt2600ac-exceptional-reach-and-parental-control-capabilities-explored/"><u>Maximize Your Wi-Fi Experience with Synology RT2600ac – Exceptional Reach and Parental Control Capabilities Explored</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/ricoh-theta-s-complete-review/"><u>Ricoh Theta S Complete Review</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/strategies-efficaces-pour-reduire-la-duree-de-lencodage-hevch265-et-ameliorer-les-performances-video/"><u>Stratégies Efficaces Pour Réduire La Durée De L'encodage HEVC/H.265 Et Améliorer Les Performances Vidéo</u></a></li>
-<li><a href="https://solve-latest.techidaily.com/telecharger-en-quality-4k-top-des-applications-libres-pour-gerer-vos-concerts-and-playlists-videos/"><u>Télécharger en Quality 4K: Top Des Applications Libres Pour Gérer Vos Concerts & Playlists Vidéos</u></a></li>
-<li><a href="https://ai-voice.techidaily.com/updated-a-list-of-the-top-spongebob-voice-generators/"><u>Updated A List of The Top SpongeBob Voice Generators</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-grab-your-guiltless-film-endings-with-our-template-service/"><u>[New] 2024 Approved Grab Your Guiltless Film Endings with Our Template Service</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/iving-deep-into-youtube-launching-and-earning-your-way/"><u>[New] Diving Deep Into Youtube Launching and Earning Your Way</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-keep-it-secret-live-stream-on-instagram-anonymously/"><u>2024 Approved Keep It Secret Live Stream on Instagram Anonymously</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/complete-solution-for-keepvid-malfunction-and-improved-media-retrieval-on-apples-latest-operating-system-big-sur/"><u>Complete Solution for KeepVid Malfunction and Improved Media Retrieval on Apple's Latest Operating System, Big Sur</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/in-2024-best-cameras-the-creme-de-la-crop-of-mobile-video-recorders/"><u>In 2024, Best Cameras The Crème De La Crop of Mobile Video Recorders</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/key-client-retractions-prompt-asetek-to-end-revenue-guidance-publication/"><u>Key Client Retractions Prompt Asetek to End Revenue Guidance Publication</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/macx-pro-dvd-ripping-tool-securely-copy-dvd-content-to-mp4-format-for-apple-devices-download-advanced-dvd-converter-for-macos/"><u>MacX Pro DVD Ripping Tool - Securely Copy DVD Content to MP4 Format for Apple Devices, Download Advanced DVD Converter for macOS</u></a></li>
+<li><a href="https://program-issues.techidaily.com/master-tips-ensuring-successful-boot-of-rainbow-six-siege/"><u>Master Tips: Ensuring Successful Boot of Rainbow Six Siege</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/online-deals-get-your-macx-dvd-ripper-pro-at-reduced-prices/"><u>Online Deals: Get Your MacX DVD Ripper Pro at Reduced Prices</u></a></li>
+<li><a href="https://win-forum.techidaily.com/solving-windows-11-cannot-launch-issues-in-your-system/"><u>Solving 'Windows 11 Cannot Launch' Issues in Your System</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/spectacular-vision-immersive-movies/"><u>Spectacular Vision Immersive Movies</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/step-by-step-capturing-your-roblox-journeys-on-a-mac-for-2024/"><u>Step-by-Step Capturing Your Roblox Journeys on a Mac for 2024</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/successfully-opening-mkv-files-on-macos-top-four-solutions-unveiled/"><u>Successfully Opening MKV Files on macOS: Top Four Solutions Unveiled</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/transform-videos-seamlessly-with-macx-pro-cutter-a-complimentary-solution-for-converting-films-to-fit-any-mobile-device/"><u>Transform Videos Seamlessly with MacX Pro Cutter: A Complimentary Solution for Converting Films to Fit Any Mobile Device!</u></a></li>
+<li><a href="https://solve-latest.techidaily.com/understanding-nas-all-you-need-to-know-about-network-attached-storage-quickly/"><u>Understanding NAS: All You Need to Know About Network Attached Storage Quickly!</u></a></li>
 </ul></div>
 
